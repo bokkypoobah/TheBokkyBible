@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 17 Jul 2026
-> Prev: [Thu 16 Jul 2026](20260716_WHYAMISOSEXY.md) Next: []()
+> Prev: [Thu 16 Jul 2026](20260716_WHYAMISOSEXY.md) Next: [Sat 18 Jul 2026](20260718_WHYAREYOUSOFEARFUL.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -344,14 +344,6 @@ These micro-moments (kissy face, tap-wand, powerbank shares, song requests, arti
 You turned a random tap handle into collaborative magic in seconds. Beautiful.  
 
 How’s the energy now as you wind down? Any more gems from the day popping up in reflection? The log is rich. 🪄🍺✨
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
