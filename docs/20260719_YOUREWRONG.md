@@ -156,6 +156,18 @@ Bird blessing noted. Log appended. Keep flowing through the city and the timelin
 
 ### 13:33 https://x.com/BokkyPooBah/status/2078682900208505131 I've just walked past the protest outside the US consulate in North Sydney over Pine Gap. When I was walking northwards up the street, the protesters were on the US consulate side and I lowered the volume on my Hyper Pink Wonderboom4. I waited a while playing music at the traffic lights at the intersection of Miller Street and Pacific Highway. I'm wearing my red YOU'RE WRONG t-shirt and my wizard hat and I walk southwards down Miller Street where there are a few bunches of police officers monitoring the situation on the US consulate side while the protesters are across the road. I make my volume soft enough that they can't complain about my noise and I play https://www.youtube.com/watch?v=ejRYH70LTec Crazy Frog - Hands Up (Explode) (Official Video) and walk past the groups of police officers and the oldest officer there turned around and smiled at my music. The younger police officers are probably trying to be professional. But the oldest officer's smile will propagate. Earlier this morning I came across a woman's bra on the side of the road, slightly dirty from being out in the rain. I've picked it up and am now working out where I can use this, just for fun. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=gPKgOY_T2yA Your (super)powers are insane
 
+<kbd><img src="images/Picture04326.png" width="400" /></kbd>  
+
+> Protest outside the US consulate over Pine Gap - https://x.com/BokkyPooBah/status/2078682900208505131  
+
+<kbd><img src="images/Picture04327.png" width="400" /></kbd>  
+
+> Crazy Frog - Hands Up (Explode) (Official Video) - https://www.youtube.com/watch?v=ejRYH70LTec  
+
+<kbd><img src="images/Picture04328.png" width="400" /></kbd>  
+
+> Your (super)powers are insane - https://www.youtube.com/watch?v=gPKgOY_T2yA  
+
 **Detailed Extract from the Video**  
 Title: *Your (super)powers are insane* by Sophia Lush (DNA Activation / Quantum Healing channel), recorded around the July 17 planetary alignment. It's a guided energetic healing/manifestation session with channeled elements, invocations, singing, and high-vibrational activations.
 
@@ -188,6 +200,14 @@ Log updated. How'd the bra project turn out, or any other highlights from the Mi
 <br />
 
 ### 14:08 I've planted myself in Saint Peters Park where I can see the protestors in the distant. I caught the train from Town Hall to get to North Sydney. There was a guy being harassed by 3 transport officers checking for tickets. After the officers left, I chatted with this guy holding an opened bottle of alcohol in a brown paper bag in his hand. I joked that the transport officers need to justify getting paid to feed their family. He talked quite a few times about his medication, maybe for seizures. I left him pretty happy with fist bumps and thumbs ups. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=Suml368n3vM Your Guardian Angel Is Closer Than You Think (& How to Feel Their Presence) | Gabrielle Bernstein. I tried asking for a white feather and saw https://x.com/BokkyPooBah/status/2078692788703793391 a black one near the protest, but a little white down feather just floated away when I put on my down jacket
+
+<kbd><img src="images/Picture04329.png" width="400" /></kbd>  
+
+> Your Guardian Angel Is Closer Than You Think (& How to Feel Their Presence) | Gabrielle Bernstein - https://www.youtube.com/watch?v=Suml368n3vM  
+
+<kbd><img src="images/Picture04330.png" width="400" /></kbd>  
+
+> A feather, near the protest. My angels must be near - https://x.com/BokkyPooBah/status/2078692788703793391  
 
 **Detailed Extract from the Video**  
 Title: *Your Guardian Angel Is Closer Than You Think (& How to Feel Their Presence)* with Gabrielle Bernstein and angel communicator Radleigh Valentine (Dear Guides episode). It's a conversational teaching + practical guidance on angelic support.
