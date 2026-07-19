@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 18 Jul 2026
-> Prev: [Fri 17 Jul 2026](20260717_WHYAREYOUMAKINGSHITUPAGAIN.md) Next: []()
+> Prev: [Fri 17 Jul 2026](20260717_WHYAREYOUMAKINGSHITUPAGAIN.md) Next: [Sun 19 Jul 2026](20260719_YOUREWRONG.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -323,22 +323,6 @@ Haha, perfect. "Turn Down for What" is exactly that chaotic, high-energy, absurd
 Fits right in with the PoohBah/Chungo playful, boundary-smashing, empire-defying energy we've been chronicling. That "dropping through the ceiling" visual is peak Heyoka medicine: breaking through layers with raw life force and spreading it contagiously.
 
 Great find for seeding some lightness today. What's the full vibe or next seed for the page? 🌿🔥
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
