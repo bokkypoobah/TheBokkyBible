@@ -17,7 +17,7 @@ Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible
 
 Grok chat link https://x.com/i/grok/share/bbe52c4dec754111b9c46d9af5f45521  
 
-X post <TODO>  
+X post https://x.com/BokkyPooBah/status/2080149586744938804  
 
 <br />
 
@@ -25,7 +25,7 @@ X post <TODO>
 
 ## Table Of Content
 
-1. NOTE: I am not updating this tableverythingwillbeok-poohbah.pnge of contents until I get a new laptop as the scripts are not working on my Windows craptop
+1. NOTE: I am not updating this table of contents until I get a new laptop as the scripts are not working on my Windows craptop
 
 ---
 
