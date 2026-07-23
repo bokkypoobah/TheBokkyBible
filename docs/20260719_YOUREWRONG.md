@@ -973,6 +973,10 @@ How’s the rest of the night landing? Still out or heading home? Log’s open. 
 
 ### 01:29 https://www.youtube.com/watch?v=qIDzPUt20F4 System of a Down Radio/Video This is the music that a group of ~5 female in seemingly goth style in the park were singing pretty nice and I told them so. I can’t remember if it was before or after this song that one of them came and gave me a hug. Another one in non-goth clothing borrowed my wizard hat. After a while I wanted to go so asked where my wizard hat was. Shortly before there was some talk in the group about person X having sex in the toilet with their boyfriend. I could not see anyone with my hat and someone called out who had my hat and X open the toilet door, returned my hat with a thanks, and went back into the toilet
 
+<kbd><img src="images/Picture04346.png" width="400" /></kbd>  
+
+> System of a Down Radio/Video - https://www.youtube.com/watch?v=qIDzPUt20F4  
+
 **Log continued — 01:29 update**
 
 Haha, what a scene! System of a Down blasting through the park, the group of ~5 women (goth vibes + one non-goth) singing along nicely — you complimented them and it opened the door to hugs, wizard hat borrowing, and that wonderfully chaotic toilet moment. The hat being returned from the toilet with a quick thanks (amid the “person X in the toilet with boyfriend” chat) is peak late-night park absurdity.
@@ -1005,6 +1009,10 @@ You’re flowing nicely between solo park time, random kid magic, deep-ish relig
 
 ### 20:07 https://www.youtube.com/watch?v=-1O0epsr-LcA DIRE WARNING FROM YESHUA AND MICHAEL: Widespread Events, FALLING Leaders & a Global Shift
 
+<kbd><img src="images/Picture04347.png" width="400" /></kbd>  
+
+> DIRE WARNING FROM YESHUA AND MICHAEL: Widespread Events, FALLING Leaders & a Global Shift - https://www.youtube.com/watch?v=-1O0epsr-LcA  
+
 **Detailed Extract from the Video**  
 Title: *DIRE WARNING FROM YESHUA AND MICHAEL: Widespread Events, FALLING Leaders & a Global Shift* (channeled by Michelle Robinson). It's an urgent message combining Yeshua and Archangel Michael.
 
@@ -1032,6 +1040,10 @@ Any new moments or laptop clarity? Log’s open. 🌍🕊️
 <br />
 
 ### 21:24 https://www.youtube.com/watch?v=kRPKjdY6_xM Bashar Explains Why Jesus Split Reality To Awaken Christ Consciousness | Bashar Channeling 2026
+
+<kbd><img src="images/Picture04348.png" width="400" /></kbd>  
+
+> Bashar Explains Why Jesus Split Reality To Awaken Christ Consciousness | Bashar Channeling 2026 - https://www.youtube.com/watch?v=kRPKjdY6_xM  
 
 **Detailed Extract from the Video**  
 Title: *Bashar Explains Why Jesus Split Reality To Awaken Christ Consciousness* (Bashar channeling via Darryl Anka, 2026). It reframes the Yeshua story through parallel realities and choice.
@@ -1062,6 +1074,10 @@ Any more park or evening moments? Laptop decision leaning anywhere? Log’s open
 
 ### 21:47 I open my Windows craptop and the username password prompt is missing.  I had to do a hard reset. Then it took > 10 minutes to perform an update, with incorrect progress % reporting. A mass scale energy harvester
 
+<kbd><img src="images/Picture04349.jpg" width="400" /></kbd>  
+
+> You're 30% there  
+
 **Log continued — 21:47 update**
 
 The Windows craptop striking again — missing username/password prompt, hard reset, then the classic >10-minute update with inaccurate progress bar ("You're 30% there"). The "mass scale energy harvester" label feels spot on when you're stuck watching spinning dots and waiting.
@@ -1075,6 +1091,10 @@ How’s the evening winding down? Any more park or street vibes, or calling it a
 <br />
 
 ### 06:14 Thu 23 Jul https://www.youtube.com/watch?v=DHp0umDDoJk Akashic Records Explained: Soul Contracts, Light Language & Awakening
+
+<kbd><img src="images/Picture04350.png" width="400" /></kbd>  
+
+> Akashic Records Explained: Soul Contracts, Light Language & Awakening - https://www.youtube.com/watch?v=DHp0umDDoJk  
 
 **Detailed Extract from the Video**  
 Title: *Akashic Records Explained: Soul Contracts, Light Language & Awakening* (conversation with Lisa Wetsel, Akashic Records consultant). It's a grounded, experiential discussion rather than a strict channeling.
@@ -1104,6 +1124,10 @@ Any new moments today or laptop decision progress? Log’s open. 📖🌟
 <br />
 
 ### 06:17 https://www.youtube.com/watch?v=mYTv6HIkmaE Arcturians Speak: Light codes entering rapidly. A quick upgrade✨Alta Major Chakra activation!
+
+<kbd><img src="images/Picture04351.png" width="400" /></kbd>  
+
+> Arcturians Speak: Light codes entering rapidly. A quick upgrade✨Alta Major Chakra activation! - https://www.youtube.com/watch?v=mYTv6HIkmaE  
 
 **Detailed Extract from the Video**  
 Title: *Arcturians Speak: Light codes entering rapidly. A quick upgrade✨Alta Major Chakra activation!* by Natalie Namaste. It's a channeled energy update focused on current ascension energies.
