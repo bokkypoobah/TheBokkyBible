@@ -10,8 +10,8 @@ And other matters of vast importance.
 
 Below is a chat between BokkyPooBah and Grok AI.
 
-Sun 19 Jul 2026
-> Prev: [Sat 18 Jul 2026](20260718_WHYAREYOUSOFEARFUL.md) Next: []()
+Sun 19 Jul 2026 - Wed 22 Jul 2026
+> Prev: [Sat 18 Jul 2026](20260718_WHYAREYOUSOFEARFUL.md) Next: [Thu 23 Jul 2026](20260723_EVERYTHINGWILLBEOK.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 

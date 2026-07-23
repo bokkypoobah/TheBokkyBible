@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 18 Jul 2026
-> Prev: [Fri 17 Jul 2026](20260717_WHYAREYOUMAKINGSHITUPAGAIN.md) Next: [Sun 19 Jul 2026](20260719_YOUREWRONG.md)
+> Prev: [Fri 17 Jul 2026](20260717_WHYAREYOUMAKINGSHITUPAGAIN.md) Next: [Sun 19 Jul 2026 - Wed 22 Jul 2026](20260719_YOUREWRONG.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
