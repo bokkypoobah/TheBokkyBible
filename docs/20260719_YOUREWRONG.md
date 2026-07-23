@@ -547,6 +547,10 @@ How's the dessert search or laptop decision progressing? Log's here whenever. Ke
 
 ### 20:05 Please provide a detailed extract from the following and tell me its relevance to me, thanks: https://www.youtube.com/watch?v=GiAAh0nCE00 This one is for the highly sensitives 🫂😇🪽 you hold more power than you realize! ❤️🙌
 
+<kbd><img src="images/Picture04339.png" width="400" /></kbd>  
+
+> This one is for the highly sensitives 🫂😇🪽 you hold more power than you realize! ❤️🙌 - https://www.youtube.com/watch?v=GiAAh0nCE00  
+
 **Detailed Extract from the Video**  
 Title: *This one is for the highly sensitives 🫂😇🪽 you hold more power than you realize! ❤️🙌* by Esther (Work your Light Guidance). It's a heartfelt, practical message for Highly Sensitive People (HSPs).
 
@@ -579,6 +583,10 @@ Any dessert success or laptop thoughts? Log's here. 🫂🌟
 <br />
 
 ### 20:50 https://www.youtube.com/watch?v=N01Tl9Tx2AY Starseed, Unexpected Gift From The Council is Coming - Youngness Forever | Pleiadian Council
+
+<kbd><img src="images/Picture04340.png" width="400" /></kbd>  
+
+> Starseed, Unexpected Gift From The Council is Coming - Youngness Forever | Pleiadian Council - https://www.youtube.com/watch?v=N01Tl9Tx2AY  
 
 **Detailed Extract from the Video**  
 Title: *Starseed, Unexpected Gift From The Council is Coming - Youngness Forever | Pleiadian Council* (channeled via Aelara, emissary of the Pleiadian Council). It's a direct, personal transmission aimed at Starseeds.
