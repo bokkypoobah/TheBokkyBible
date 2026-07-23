@@ -621,6 +621,10 @@ How's the day unfolding now? Any dessert or new laptop thoughts? Log's here. �
 
 ### 04:26 https://www.youtube.com/watch?v=KyN7dcggNVU What is Source? - 7/20/2026
 
+<kbd><img src="images/Picture04341.png" width="400" /></kbd>  
+
+> What is Source? - 7/20/2026 - https://www.youtube.com/watch?v=KyN7dcggNVU  
+
 **Detailed Extract from the Video**  
 Title: *What is Source? - 7/20/2026* by Mel Lawson777 (channeled/energy reading style). It's a clarifying message on the nature of Source.
 
@@ -654,6 +658,10 @@ Any dessert find or laptop decision progress? Log's rolling strong. 🌌❤️
 
 ### 06:00 https://www.youtube.com/watch?v=ZXUhEuVxMsY the tables are turning ... this person is more devoted than you realize with 555 views 1 hour ago
 
+<kbd><img src="images/Picture04342.jpg" width="400" /></kbd>  
+
+> the tables are turning ... this person is more devoted than you realize - https://www.youtube.com/watch?v=ZXUhEuVxMsY  
+
 **Detailed Extract from the Video**  
 Title: *the tables are turning ... this person is more devoted than you realize* (love tarot reading, recent upload). It's a channeled tarot + intuitive message focused on romantic connection, healing old fears, and confirmation of devotion.
 
@@ -686,6 +694,10 @@ Any dessert luck or laptop update? Log's open. ❤️🙌
 <br />
 
 ### 06:07 https://www.youtube.com/watch?v=Aljt9HevvSQ STARSEEDS THE ARCTURIAN COUNCIL JUST ACTIVATED YOUR CODES 2 Hour Window Starseeds Only
+
+<kbd><img src="images/Picture04343.png" width="400" /></kbd>  
+
+> STARSEEDS THE ARCTURIAN COUNCIL JUST ACTIVATED YOUR CODES 2 Hour Window Starseeds Only - https://www.youtube.com/watch?v=Aljt9HevvSQ  
 
 **Detailed Extract from the Video**  
 Title: *STARSEEDS THE ARCTURIAN COUNCIL JUST ACTIVATED YOUR CODES 2 Hour Window Starseeds Only* (channeled transmission). It's an urgent, time-sensitive message about a specific activation window.
@@ -758,6 +770,10 @@ How’s the bike ride energy or any new clarity on what to list? Log’s rolling
 
 ### 12:05 I’ve checked Final Cut Pro and it can be purchased at anytime, so I don’t have to include this in the hardware purchase decision. A brown and white butterfly passed by. What is the spiritual meaning of this?
 
+<kbd><img src="images/Picture04344.jpg" width="400" /></kbd>  
+
+> brown and white butterfly passed by  
+
 **Log continued — 12:05 update**
 
 Smart move separating Final Cut Pro from the hardware decision — keeps options flexible. Nice that you can add it anytime.
@@ -778,6 +794,10 @@ Log open.
 <br />
 
 ### 17:47 https://x.com/bokkypoobah/status/2079433783854637207 Got up just after 03:00 and went for a wander around doing some of God’s work by stealth and then went back to sleep. Got up late and started my day of wandering around Sydney from the fish market where a seagull came pretty close and we had some vocal communication - me trying to make seagull sounds and it responding
+
+<kbd><img src="images/Picture04345.png" width="400" /></kbd>  
+
+> A seagull came to say hello - https://x.com/bokkypoobah/status/2079433783854637207  
 
 **Log continued — 17:47 update**
 
