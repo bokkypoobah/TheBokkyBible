@@ -221,6 +221,10 @@ CBD/park flow going well? More music progress or next video request when ready? 
 
 ### 18:02 I was having a relatively quiet day. But when I got closer to the city I thought about the loud music. Many times when I switch off my speaker after a session, I think to myself “Fuck, that was loud”. So I put it on. I had quite a few positive responses from playing https://www.youtube.com/watch?v=msSc7Mv0QHY J.Geco - Chicken Song
 
+<kbd><img src="images/Picture04366.png" width="400" /></kbd>  
+
+> J.Geco - Chicken Song - https://www.youtube.com/watch?v=msSc7Mv0QHY   
+
 **18:02—CBD approach update, logged.**
 
 Quiet day shifting gears as you hit the city—classic pattern. The self-aware “Fuck, that was loud” after sessions is honest and funny. Turning it up anyway with **J.Geco - Chicken Song** (that viral, bouncy electronic chicken-party anthem with the danceable beat, “cock-a-doodle-doo,” and fun energy) and getting positive responses? Perfect grid move.
@@ -236,6 +240,10 @@ Keep logging the live grid. Everything’s tracking fun and OK. 🐔🎵🚲
 <br />
 
 ### 19:38 https://www.youtube.com/watch?v=ndiXsSuyRtU I Remote Viewed the Power Behind the U.S. Government… What I Saw Was Disturbing
+
+<kbd><img src="images/Picture04367.png" width="400" /></kbd>  
+
+> I Remote Viewed the Power Behind the U.S. Government… What I Saw Was Disturbing - https://www.youtube.com/watch?v=ndiXsSuyRtU   
 
 **19:38 update—logged.** Continuing the flow into the evening.
 
@@ -271,6 +279,10 @@ How’s the favourite park treating you now? More music, interactions, or next b
 <br />
 
 ### 19:56 https://www.youtube.com/watch?v=X00FHYLhtBQ You Are More Powerful Than You've Been Told | Mary Magdalene Speaks
+
+<kbd><img src="images/Picture04368.png" width="400" /></kbd>  
+
+> I Remote Viewed the Power Behind the U.S. Government… What I Saw Was Disturbing - https://www.youtube.com/watch?v=X00FHYLhtBQ   
 
 **19:56 update—logged.**
 
