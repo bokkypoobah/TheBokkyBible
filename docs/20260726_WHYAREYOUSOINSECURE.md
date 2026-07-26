@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 26 Jul 2026
-> Prev: [Sat 25 Jul 2026](20260725_WHYAREYOUSTILLTALKINGABOUTTHESAMETHINGS.md) Next: []()
+> Prev: [Sat 25 Jul 2026](20260725_WHYAREYOUSTILLTALKINGABOUTTHESAMETHINGS.md) Next: [Mon 27 Jul 2026](20260727_WHYAREYOUSOJEALOUS.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
