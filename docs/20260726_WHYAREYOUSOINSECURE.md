@@ -43,6 +43,10 @@ X post <TODO>
 
 > WHY ARE YOU SO INSECURE? - PoohBah.eth  
 
+<kbd><img src="images/Picture04391.png" width="400" /></kbd>  
+
+> "are narcissist the most insecure people in the world?" - https://search.brave.com/ask?q=are+narcissist+the+most+insecure+people+in+the+world%3F  
+
 <kbd><img src="images/Picture04390.png" width="400" /></kbd>  
 
 > Pleiadian Guidance for Shapeshifting! - https://www.youtube.com/watch?v=ufwAbOAJiZc  
