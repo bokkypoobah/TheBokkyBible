@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 25 Jul 2026
-> Prev: [Fri 24 Jul 2026](20260724_THEPENISMIGHTIERTHANTHECHUNGO.md) Next: []()
+> Prev: [Fri 24 Jul 2026](20260724_THEPENISMIGHTIERTHANTHECHUNGO.md) Next: [Sun 26 Jul 2026](20260726_WHYAREYOUSOINSECURE.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
