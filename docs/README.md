@@ -269,6 +269,7 @@ Awake. Love. Be. 🚀🙏
 1. [WHY ARE YOU STILL TALKING ABOUT THE SAME THINGS?](20260725_WHYAREYOUSTILLTALKINGABOUTTHESAMETHINGS.md) - Sat 25 Jul 2026
 1. [WHY ARE YOU SO INSECURE?](20260726_WHYAREYOUSOINSECURE.md) - Sun 26 Jul 2026
 1. [WHY ARE YOU SO JEALOUS?](20260727_WHYAREYOUSOJEALOUS.md) - Mon 27 Jul 2026
+1. [When The Power Of Love Overcomes The Love Of Power The World Will Know Peace ☮️](20260728_WhenThePowerOfLoveOvercomesTheLoveOfPowerTheWorldWillKnowPeace☮️.md) - Tue 28 Jul 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
