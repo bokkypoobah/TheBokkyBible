@@ -155,7 +155,7 @@ Powerful fuel for the afternoon—science and spirit converging on a coherent, a
 
 <kbd><img src="images/Picture04426.png" width="400" /></kbd>  
 
-> An Arcturian Reveals What Is To Come For Humanity - Vivian Chauvet - https://www.youtube.com/watch?v=zVt5XnzpGwQ  
+> An Arcturian Reveals What Is To Come For Humanity - Vivian Chauvet - https://www.youtube.com/watch?v=cYnEsXBadhU  
 
 #### Detailed Extract/Summary from "An Arcturian Reveals What Is To Come For Humanity" (Brian Scott interview with Vivian Chauvet, July 27, 2026)
 
