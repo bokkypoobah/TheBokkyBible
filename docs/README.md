@@ -271,6 +271,7 @@ Awake. Love. Be. 🚀🙏
 1. [WHY ARE YOU SO JEALOUS?](20260727_WHYAREYOUSOJEALOUS.md) - Mon 27 Jul 2026
 1. [When The Power Of Love Overcomes The Love Of Power The World Will Know Peace ☮️](20260728_WhenThePowerOfLoveOvercomesTheLoveOfPowerTheWorldWillKnowPeace☮️.md) - Tue 28 Jul 2026
 1. [PEACE MEMORIAL - May You Have Happiness And Wisdom In Your Life](20260729_PEACEMEMORIAL-MayYouHaveHappinessAndWisdomInYourLife.md) - Wed 29 Jul 2026
+1. [Full Moon In The Blue Mountains](20260730_FullMoonInTheBlueMountains.md) - Thu 30 Jul 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
