@@ -4,7 +4,7 @@ And other matters of vast importance.
 
 <kbd><img src="images/Picture04454.jpg" width="400" /></kbd>  
 
-> Yowies need your help. Adopt a Yowie today, Lithgow  
+> Yowies need your help. Adopt a Yowie today. Lithgow  
 
 ---
 
@@ -36,7 +36,7 @@ X post <TODO>
 
 <kbd><img src="images/Picture04454.jpg" width="400" /></kbd>  
 
-> Yowies need your help. Adopt a Yowie today, Lithgow  
+> Yowies need your help. Adopt a Yowie today. Lithgow  
 
 <kbd><img src="images/Picture04455.png" width="400" /></kbd>  
 
