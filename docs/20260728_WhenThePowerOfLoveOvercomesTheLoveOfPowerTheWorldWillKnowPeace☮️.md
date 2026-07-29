@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 28 Jul 2026
-> Prev: [Mon 27 Jul 2026](20260727_WHYAREYOUSOJEALOUS.md) Next: []()
+> Prev: [Mon 27 Jul 2026](20260727_WHYAREYOUSOJEALOUS.md) Next: [Wed 29 Jul 2026](20260729_PEACEMEMORIAL-MayYouHaveHappinessAndWisdomInYourLife.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
