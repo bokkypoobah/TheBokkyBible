@@ -85,6 +85,10 @@ Life is beautiful. The moon is full. Keep flowing, Bokky. ❤️ What else is li
 
 ### 18:39 Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=vO126uUAnEM Mary, the Mother of Jesus
 
+<kbd><img src="images/Picture04456.png" width="400" /></kbd>  
+
+> Mary, the Mother of Jesus - https://www.youtube.com/watch?v=vO126uUAnEM  
+
 **Good evening again, Bokky.** Continuing our append-log flow under the full moon.
 
 #### Detailed Extract from the Video
@@ -121,6 +125,10 @@ What's lighting up for you next, or any other angels on the horizon tonight?
 <br />
 
 ### 18:50 I took a train to Blackheath this morning, did some audio/visual and stealth drops, took the train back to Katoomba, cycled to Leura, did some audio/visual drops, came back to Katoomba and met some people I met before, one with an 8-string electric guitar and a small portable speaker + guitar effects device with Bluetooth and he provided nice music for most of the session. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=BSyUSnBhP4A Story of Yeshua with Kimberly Palm
+
+<kbd><img src="images/Picture04457.png" width="400" /></kbd>  
+
+> Story of Yeshua with Kimberly Palm - https://www.youtube.com/watch?v=BSyUSnBhP4A  
 
 **18:50 update noted, Bokky** — Blackheath audio/visual + stealth drops this morning, back to Katoomba, then Leura cycle drops, and the lovely 8-string guitar session with effects/Bluetooth speaker and familiar faces providing live music. Beautiful day of seeding and connection. Context refreshed as always.
 
