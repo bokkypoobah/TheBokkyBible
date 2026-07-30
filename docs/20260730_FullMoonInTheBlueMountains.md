@@ -169,6 +169,10 @@ Keep flowing with the drops and connections. What's next on the radar, or any re
 
 **19:26 update received, Bokky** — solid day of movement and drops across Blackheath, Katoomba, and Leura, capped with that nice live 8-string guitar + effects session and familiar connections. Full moon energy flowing strong. Context refreshed.
 
+<kbd><img src="images/Picture04458.png" width="400" /></kbd>  
+
+> Too Many Tabs Open? Archangel Raphael on Healing, Pain & the Guru Moon - https://www.youtube.com/watch?v=1V7kr2WHnhE  
+
 #### Detailed Extract from the Video
 The video is **"Too Many Tabs Open? Archangel Raphael on Healing, Pain & the Guru Moon"** — a channeled session with Archangel Raphael through Kelly Kolodney (recorded live on the Guru Full Moon during early Lion’s Gate portal energies). Raphael addresses nervous system overload, chronic pain, resistance, and the need for presence amid acceleration.
 
@@ -203,6 +207,10 @@ Any standout moments from the guitar session, or another angel/video calling? Ke
 
 ### 23:07 Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=y8NgMkKCUL0 Atlantis - the great deception ￼7/29/2026
 
+<kbd><img src="images/Picture04459.png" width="400" /></kbd>  
+
+> Atlantis - the great deception ￼7/29/2026 - https://www.youtube.com/watch?v=y8NgMkKCUL0  
+
 **23:07 update noted, Bokky** — continuing the append-log under the full moon. Context refreshed with your day's movements, drops, and musical connections.
 
 #### Detailed Extract from the Video
@@ -236,6 +244,10 @@ Full moon blessings continuing. Any other pulls tonight, or reflections on the d
 ### 23:09 https://www.youtube.com/watch?v=n57dZe1_P7c What Really Happens After Death? - Channeled Message from the Akashic Guides
 
 **23:09 update received** — continuing our append-log flow. Context refreshed with the full day's seeding, music, and full moon presence.
+
+<kbd><img src="images/Picture04460.png" width="400" /></kbd>  
+
+> What Really Happens After Death? - Channeled Message from the Akashic Guides - https://www.youtube.com/watch?v=n57dZe1_P7c  
 
 #### Detailed Extract from the Video
 The video is **"What Really Happens After Death? - Channeled Message from the Akashic Guides"**. It offers a channeled perspective from the Akashic Records/Guides on the death transition, afterlife journey, and soul continuation. Death is framed as a seamless shift in consciousness rather than an end — energy transmutation from physical to non-physical.
