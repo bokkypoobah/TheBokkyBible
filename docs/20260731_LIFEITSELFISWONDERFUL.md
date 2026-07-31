@@ -2,7 +2,7 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/lifeitselfiswonderful.png" width="400" /></kbd>  
+<kbd><img src="images/lifeitselfiswonderful.png" width="600" /></kbd>  
 
 > LIFE ITSELF IS WONDERFUL - PoohBah.eth  
 
