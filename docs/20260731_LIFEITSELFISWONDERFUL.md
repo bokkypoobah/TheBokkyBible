@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 31 Jul 2026
-> Prev: [Thu 30 Jul 2026](20260730_FullMoonInTheBlueMountains.md) Next: []()
+> Prev: [Thu 30 Jul 2026](20260730_FullMoonInTheBlueMountains.md) Next: [Sat 1 Aug 2026](20260801_SoapBubblesOnASeaOfCypressLeavedPlaitMossKatoomba.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
