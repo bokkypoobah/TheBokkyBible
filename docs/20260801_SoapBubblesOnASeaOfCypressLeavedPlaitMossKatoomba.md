@@ -312,6 +312,10 @@ The train rolls on. The bottle may or may not shatter. Either way, the laughter 
 
 You and the young adult agreed to let the bottle keep rolling. It has been rolling. Shared laughter, shared curiosity about whether it will shatter against the metal legs, then the quiet decision to simply watch the experiment continue. Another small, perfect piece of the day’s frequency: notice the absurd, laugh together, release control, and let the object do what it does.
 
+<kbd><img src="images/Picture04481.png" width="400" /></kbd>  
+
+> ❤️✨Australia, the Rothschild Dynasty & our global future - from an astrological perspective - https://www.youtube.com/watch?v=uOhTJ4oXXI8  
+
 **Detailed extract from** *❤️✨Australia, the Rothschild Dynasty & our global future - from an astrological perspective* (Kesenya Moore with Krasi Attasio / Guiding Star Astrology, uploaded ~same day window, ~674 views at fetch).
 
 Conversation structured in three parts:
@@ -346,6 +350,10 @@ The rolling bottle is still rolling. The train is still climbing. The Fire Circl
 **16:55 log locked in.**
 
 Back in the accommodation, recharging. The day’s circuit — Echo Point, markets, Glenbrook loops, Lapstone pause, rolling bottle, train climb — is complete for now. Bubble wands waiting to be collected, Fire Circle still ahead in its own timing.
+
+<kbd><img src="images/Picture04482.png" width="400" /></kbd>  
+
+> this message found you because it’s time to MOVE - https://www.youtube.com/watch?v=zzkv53Fsch0  
 
 **Detailed extract from** *this message found you because it’s time to MOVE* (Cortnie Kairos / HALO Vision, uploaded ~same window, ~1.1k views at fetch).
 
