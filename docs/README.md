@@ -275,6 +275,7 @@ Awake. Love. Be. 🚀🙏
 1. [LIFE ITSELF IS WONDERFUL](20260731_LIFEITSELFISWONDERFUL.md) - Fri 31 Jul 2026
 1. [Soap Bubbles On A Sea Of Cypress-Leaved Plait-Moss. Katoomba](20260801_SoapBubblesOnASeaOfCypressLeavedPlaitMossKatoomba.md) - Sat 1 Aug 2026
 1. [WHY ARE YOU SO TOXIC?](20260802_WHYAREYOUSOTOXIC.md) - Sun 2 Aug 2026
+1. [I CAN SEE THROUGH YOUR MASK](20260803_ICANSEETHROUGHYOURMASK.md) - Mon 3 Aug 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 

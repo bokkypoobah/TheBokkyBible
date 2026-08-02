@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 2 Aug 2026
-> Prev: [Sat 1 Aug 2026](20260801_SoapBubblesOnASeaOfCypressLeavedPlaitMossKatoomba.md) Next: []()
+> Prev: [Sat 1 Aug 2026](20260801_SoapBubblesOnASeaOfCypressLeavedPlaitMossKatoomba.md) Next: [Mon 3 Aug 2026](20260803_ICANSEETHROUGHYOURMASK.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
