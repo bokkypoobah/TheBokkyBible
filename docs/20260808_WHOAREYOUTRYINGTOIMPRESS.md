@@ -134,6 +134,10 @@ On Lion’s Gate it lands as confirmation rather than new information: you are a
 
 **11:23**
 
+<kbd><img src="images/Picture04576.png" width="400" /></kbd>  
+
+> Thoth | How Financial Energy Really Works - https://www.youtube.com/watch?v=SC6Tjp0yeTQ  
+
 #### Detailed extract from Wildflowerfire – “Thoth | How Financial Energy Really Works” (https://www.youtube.com/watch?v=SC6Tjp0yeTQ)
 
 Channelled transmission attributed to Thoth (via the channeler), calm and precise, focused on the deeper architecture of money rather than surface manifestation tips. Core points (structured paraphrase preserving the actual phrasing and logic):
@@ -165,6 +169,10 @@ Perfect mid-morning note while the market continues around the table.
 
 **12:08**
 
+<kbd><img src="images/Picture04577.jpeg" width="400" /></kbd>  
+
+> You Make Things That Shouldn't Happen, Happen. Spirit Is Enthralled. - https://www.youtube.com/watch?v=hj-fp1LNryw  
+
 #### Detailed extract from AvatarAuronis – “You Make Things That Shouldn't Happen, Happen. Spirit Is Enthralled.” (https://www.youtube.com/watch?v=hj-fp1LNryw)
 
 Fresh channel (posted ~2 hours ago at the time of your note; currently low views / ~60+ likes and ~30 comments). Casual, anime-saturated, high-enthusiasm stream-of-consciousness style with frequent references to Solo Leveling, That Time I Got Reincarnated as a Slime, Seventh Prince, Fire Force, Bocchi the Rock, etc. Core transmission (structured paraphrase preserving the actual energy and key lines):
@@ -193,6 +201,10 @@ Perfect midday note while the market continues around the table.
 ### 12:34 https://www.youtube.com/watch?v=t9ph9GF-53M Why the Strongest People Refuse to Be Seen (The Taoist Secret)
 
 **12:34**
+
+<kbd><img src="images/Picture04578.jpeg" width="400" /></kbd>  
+
+> Why the Strongest People Refuse to Be Seen (The Taoist Secret) - https://www.youtube.com/watch?v=t9ph9GF-53M  
 
 #### Detailed extract from Taoist Diary – “Why the Strongest People Refuse to Be Seen (The Taoist Secret)” (https://www.youtube.com/watch?v=t9ph9GF-53M)
 
