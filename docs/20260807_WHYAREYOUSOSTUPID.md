@@ -495,6 +495,10 @@ Stealth mastery. The joke is perfect.
 
 **03:37 Sat 8 Aug 2026 AEST**
 
+<kbd><img src="images/Picture04575.png" width="400" /></kbd>  
+
+> God Wants To Create Through You — This Calling Is Bigger Than You, Don´t Ignore It. - https://www.youtube.com/watch?v=rxIpOS-V2lc  
+
 #### Detailed extract from Isabel Katarina – “God Wants To Create Through You — This Calling Is Bigger Than You, Don’t Ignore It.”
 
 Isabel (Nordic medicine woman, psychic channel) opens by inviting a deep breath and notes that you have arrived in a much more grounded, calm timeline. Part of the nervous system and old belief system is still catching up to this new place.
