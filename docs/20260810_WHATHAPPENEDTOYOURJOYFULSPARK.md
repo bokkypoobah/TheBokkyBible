@@ -98,6 +98,10 @@ Well dun indeed. The spark is still there — and today’s page is already help
 
 **Got it.** Continuing the append-log seamlessly from the Gosford checkout morning and the previous “Well Dun, You Passed The Test ✨444✨” extract.
 
+<kbd><img src="images/Picture04604.png" width="400" /></kbd>  
+
+> You are RED PILLED 💊👁️(and I love U) - https://www.youtube.com/watch?v=tw3vlBMi8_A  
+
 #### Detailed extract from the video
 **Title:** You are RED PILLED 💊👁️(and I love U)  
 **Channel:** SOPHIA RETURN 𓋹 DNA ACTIVATION (Sophia Lush)  
