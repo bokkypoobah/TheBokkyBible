@@ -285,6 +285,7 @@ Awake. Love. Be. 🚀🙏
 1. [WHAT HAPPENED TO YOUR JOYFUL SPARK?](20260810_WHATHAPPENEDTOYOURJOYFULSPARK.md) - Mon 10 Aug 2026
 1. [WHY DO YOU HOLD SO MANY GRUDGES?](20260811_WHYDOYOUHOLDSOMANYGRUDGES.md) - Tue 11 Aug 2026
 1. [Doing Nothing In Gosford](20260812_DoingNothingInGosford.md) - Wed 12 Aug 2026
+1. [Doing More Nothing In Gosford](20260813_DoingMoreNothingInGosford.md) - Thu 13 Aug 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
