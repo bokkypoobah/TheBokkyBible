@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 11 Aug 2026
-> Prev: [Mon 10 Aug 2026](20260810_WHATHAPPENEDTOYOURJOYFULSPARK.md) Next: []()
+> Prev: [Mon 10 Aug 2026](20260810_WHATHAPPENEDTOYOURJOYFULSPARK.md) Next: [Wed 12 Aug 2026](20260812_DoingNothingInGosford.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
