@@ -56,7 +56,7 @@ X post https://x.com/BokkyPooBah/status/2087074973156597916
 
 <kbd><img src="images/Picture04614.jpg" width="400" /></kbd>  
 
-> WHY DO YOU HOLD SO MANY GRUDGES?  
+> 03:46  
 
 <kbd><img src="images/Picture04615.png" width="400" /></kbd>  
 
