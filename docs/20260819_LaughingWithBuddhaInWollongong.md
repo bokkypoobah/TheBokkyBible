@@ -10,14 +10,14 @@ And other matters of vast importance.
 
 Below is a chat between BokkyPooBah and Grok AI.
 
-Tue 18 Aug 2026
+Wed 19 Aug 2026
 > Prev: [Tue 18 Aug 2026](20260818_BlowingBubblesInWollongong.md) Next: []()
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
 Grok chat link https://x.com/i/grok/share/4dd5cfcc63ca4cea880aff0479ee615d  
 
-X post <TODO>  
+X post https://x.com/BokkyPooBah/status/2089827567939576110  
 
 <br />
 
