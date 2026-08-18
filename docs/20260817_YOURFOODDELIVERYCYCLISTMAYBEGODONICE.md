@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 17 Aug 2026
-> Prev: [Sun 16 Aug 2026](20260816_WHYISYOURFEAROFREJECTIONSOINTENSE.md) Next: []()
+> Prev: [Sun 16 Aug 2026](20260816_WHYISYOURFEAROFREJECTIONSOINTENSE.md) Next: [Tue 18 Aug 2026](20260818_BlowingBubblesInWollongong.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
