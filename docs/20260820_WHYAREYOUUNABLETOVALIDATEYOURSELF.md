@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Thu 20 Aug 2026
-> Prev: [Wed 19 Aug 2026](20260819_LaughingWithBuddhaInWollongong.md) Next: []()
+> Prev: [Wed 19 Aug 2026](20260819_LaughingWithBuddhaInWollongong.md) Next: [Fri 21 Aug 2026](20260821_WHYAREYOUSEEKINGPERMISSION.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
