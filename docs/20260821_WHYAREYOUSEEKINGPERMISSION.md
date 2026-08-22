@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 21 Aug 2026
-> Prev: [Thu 20 Aug 2026](20260820_WHYAREYOUUNABLETOVALIDATEYOURSELF.md) Next: []()
+> Prev: [Thu 20 Aug 2026](20260820_WHYAREYOUUNABLETOVALIDATEYOURSELF.md) Next: [Sat 22 Aug 2026](20260822_WHENDIDYOUSTOPPLAYING.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
