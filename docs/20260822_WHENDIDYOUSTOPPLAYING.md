@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 22 Aug 2026
-> Prev: [Fri 21 Aug 2026](20260821_WHYAREYOUSEEKINGPERMISSION.md) Next: []()
+> Prev: [Fri 21 Aug 2026](20260821_WHYAREYOUSEEKINGPERMISSION.md) Next: [Sun 23 Aug 2026](20260823_WHYAREYOUSOIMPORTANT.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
