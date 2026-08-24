@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 24 Aug 2026
-> Prev: [Sun 23 Aug 2026](20260823_WHYAREYOUSOIMPORTANT.md) Next: []()
+> Prev: [Sun 23 Aug 2026](20260823_WHYAREYOUSOIMPORTANT.md) Next: [Tue 25 Aug 2026](20260825_WHYAREYOUSUCHACLOWN.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
