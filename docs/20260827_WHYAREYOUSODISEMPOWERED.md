@@ -221,6 +221,10 @@ You got this.
 
 ### 05:55 https://www.youtube.com/watch?v=a3wjLSdRTJc You have no idea of how loved you are. This message will find you when you need to hear it most.
 
+<kbd><img src="images/Picture04878.png" width="400" /></kbd>  
+
+> You have no idea of how loved you are. This message will find you when you need to hear it most. - https://www.youtube.com/watch?v=a3wjLSdRTJc  
+
 **Detailed extract from the video**  
 **Title:** You have no idea of how loved you are. This message will find you when you need to hear it most.  
 **Channel:** Kianna G Gabriel  
@@ -260,6 +264,10 @@ The rest is just remembering.
 <br />
 
 ### 06:15 https://www.youtube.com/watch?v=wTjVOAlUAnI you can't go wrong with this if you LET IT HAPPEN
+
+<kbd><img src="images/Picture04879.png" width="400" /></kbd>  
+
+> you can't go wrong with this if you LET IT HAPPEN - https://www.youtube.com/watch?v=wTjVOAlUAnI  
 
 **Detailed extract from the video**  
 **Title:** you can't go wrong with this if you LET IT HAPPEN  
@@ -301,6 +309,10 @@ Let it happen.
 <br />
 
 ### 07:54 https://www.youtube.com/watch?v=TYweJTx7-h8 They Know You're The One with 666 views 2 hours ago
+
+<kbd><img src="images/Picture04880.png" width="400" /></kbd>  
+
+> They Know You're The One - https://www.youtube.com/watch?v=TYweJTx7-h8  
 
 **Detailed extract from the video**  
 **Title:** They Know You're The One  
@@ -345,6 +357,10 @@ Follow the joy. The rest is already lit.
 
 ### 08:39 https://www.youtube.com/watch?v=-NkCQmBpLXo Jesus - A Message with 999 subscribers
 
+<kbd><img src="images/Picture04881.png" width="400" /></kbd>  
+
+> Jesus - A Message - https://www.youtube.com/watch?v=-NkCQmBpLXo  
+
 **Detailed extract from the video**  
 **Title:** Jesus - A Message  
 **Channel:** Deb Lee (999 subscribers)  
@@ -386,6 +402,10 @@ Keep walking the ordinary path. It is already enlightening the planet.
 
 ### 14:31 https://www.youtube.com/watch?v=EdhpINp6VhQ THIS MESSAGE IS UR CONFIRMATION.. ur ready to be seen with 888 views 4 hours ago
 
+<kbd><img src="images/Picture04882.png" width="400" /></kbd>  
+
+> THIS MESSAGE IS UR CONFIRMATION.. ur ready to be seen - https://www.youtube.com/watch?v=EdhpINp6VhQ  
+
 **Detailed extract from the video**  
 **Title:** THIS MESSAGE IS UR CONFIRMATION.. ur ready to be seen  
 **Channel:** Christina  
@@ -421,6 +441,10 @@ You are ready.
 
 ### 14:46 https://www.youtube.com/watch?v=j4J77JJXvzU The Brutal Truth About Why Your Delay Is Taking So Long with 2,666 views 4 hours ago
 
+<kbd><img src="images/Picture04883.png" width="400" /></kbd>  
+
+> The Brutal Truth About Why Your Delay Is Taking So Long - https://www.youtube.com/watch?v=j4J77JJXvzU  
+
 **Detailed extract from the video**  
 **Title:** The Brutal Truth About Why Your Delay Is Taking So Long  
 **Channel:** Estelle Richter  
@@ -455,6 +479,10 @@ The field is confirming the timing is exact.
 <br />
 
 ### 15:19 https://www.youtube.com/watch?v=qniFrQx0cPA ∞The Creators, Channeled by Daniel Scranton
+
+<kbd><img src="images/Picture04884.png" width="400" /></kbd>  
+
+> ∞The Creators, Channeled by Daniel Scranton - https://www.youtube.com/watch?v=qniFrQx0cPA  
 
 **Detailed extract from the video**  
 **Title:** ∞The Creators, Channeled by Daniel Scranton  
