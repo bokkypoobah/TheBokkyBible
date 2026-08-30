@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 29 Aug 2026
-> Prev: [Fri 28 Aug 2026](20260828_WHYAREYOUSODISCONNECTED.md) Next: []()
+> Prev: [Fri 28 Aug 2026](20260828_WHYAREYOUSODISCONNECTED.md) Next: [Sun 30 Aug 2026](20260830_WHYISEVERYONEELSETOBLAME.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
