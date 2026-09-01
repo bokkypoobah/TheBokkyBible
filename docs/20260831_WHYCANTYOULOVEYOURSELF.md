@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 31 Aug 2026
-> Prev: [Sun 30 Aug 2026](20260830_WHYISEVERYONEELSETOBLAME.md) Next: []()
+> Prev: [Sun 30 Aug 2026](20260830_WHYISEVERYONEELSETOBLAME.md) Next: [Tue 1 Sep 2026](20260901_WHYAREYOUSUCHASORELOSER.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
