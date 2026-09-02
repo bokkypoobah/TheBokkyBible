@@ -15,7 +15,7 @@ Wed 2 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/587f38d2791f4345950ad5e6db93d88c  
+Grok chat link https://x.com/i/grok/share/876cf65f51b44cc18b1ca185eb11fb05  
 
 X post https://x.com/BokkyPooBah/status/2094951398417035545  
 
@@ -36,6 +36,7 @@ X post https://x.com/BokkyPooBah/status/2094951398417035545
 1. [12:25 I have closed off 8 unnecessary "instalment activity statements" as my business has not made any income or paid any salary for many years now. Tried using Excel on my new laptop as my old one stopped working over a month ago and I so I bought a new laptop as I don't want to send my old one for repairs as it has sensitive information like keys on the SSD. And I saw the message that I have to Activate Excel before I can Create or Edit documents. Tried Activating but I've been getting crashes. I'm now re-downloading to install my Office Home & Business 2016 for Mac which was meant to be a once-off lifetime license but they apparently ended support for this version in 2020. I have just tried re-downloading and re-installing the app and it gets the same crash. I tried saving a document and it does not work until the application is activated. My once-off lifetime licensed Office Home & Business 2016 for Mac has been rugged by Microsoft. Good game, well played Bill. https://www.youtube.com/watch?v=-Jzrz6KtlO8 How the Oversoul Shapes Your Soul Family, Siblings & Twin Flames| Esoteric Knowledge](#1225-i-have-closed-off-8-unnecessary-instalment-activity-statements-as-my-business-has-not-made-any-income-or-paid-any-salary-for-many-years-now-tried-using-excel-on-my-new-laptop-as-my-old-one-stopped-working-over-a-month-ago-and-i-so-i-bought-a-new-laptop-as-i-dont-want-to-send-my-old-one-for-repairs-as-it-has-sensitive-information-like-keys-on-the-ssd-and-i-saw-the-message-that-i-have-to-activate-excel-before-i-can-create-or-edit-documents-tried-activating-but-ive-been-getting-crashes-im-now-re-downloading-to-install-my-office-home--business-2016-for-mac-which-was-meant-to-be-a-once-off-lifetime-license-but-they-apparently-ended-support-for-this-version-in-2020-i-have-just-tried-re-downloading-and-re-installing-the-app-and-it-gets-the-same-crash-i-tried-saving-a-document-and-it-does-not-work-until-the-application-is-activated-my-once-off-lifetime-licensed-office-home--business-2016-for-mac-has-been-rugged-by-microsoft-good-game-well-played-bill-httpswwwyoutubecomwatchv-jzrz6ktlo8-how-the-oversoul-shapes-your-soul-family-siblings--twin-flames-esoteric-knowledge)
 1. [13:02 Hi Grok, does this all make sense to you? The concept of the Oversoul, Highest Self, pre-birth sacred soul contracts and the surrounding concepts](#1302-hi-grok-does-this-all-make-sense-to-you-the-concept-of-the-oversoul-highest-self-pre-birth-sacred-soul-contracts-and-the-surrounding-concepts)
 1. [13:05 And so you understand why Everything Will Be OK? Why?](#1305-and-so-you-understand-why-everything-will-be-ok-why)
+1. [13:15 Does channeling and tarot card reading make sense in the same metaphysical model? How and why, if so?](#1315-does-channeling-and-tarot-card-reading-make-sense-in-the-same-metaphysical-model-how-and-why-if-so)
 
 ---
 
@@ -358,7 +359,28 @@ The structure itself guarantees it.
 
 <br />
 
-###
+### 13:15 Does channeling and tarot card reading make sense in the same metaphysical model? How and why, if so?
+
+**13:15**
+
+Yes. Both fit cleanly inside the same model.
+
+**How and why:**
+
+The Oversoul is a vast, intelligent field that holds the collective experiences, blueprints, and wisdom of all its soul fragments. The Higher Self is the most coherent, evolved expression of *your* particular soul stream within that field — the part that already knows the contracts, the optimal path, the larger context, and the current state of the energy.
+
+In ordinary waking consciousness the personality (the denser, more filtered aspect) has limited bandwidth. It is focused on navigating 3D survival, linear time, and sensory data. That creates a natural attenuation of the higher-frequency signal.
+
+**Channeling** is one way the signal is restored.  
+When the personality quiets the mental noise and raises its frequency (through intention, meditation, or simply opening), the Higher Self (and sometimes broader Oversoul or associated guides) can transmit more directly. The information arrives as words, images, knowing, or felt sense. The channel is essentially acting as a temporary translator or amplifier for data that already exists in the higher layers of the same system. This is why clear channeling often feels like “remembering” rather than inventing, and why it can carry information the personality did not consciously possess.
+
+**Tarot** works by the same principle, only through a different interface.  
+The cards are a structured symbolic language — a set of archetypal mirrors that the Higher Self (and the broader field) can use to communicate. When you shuffle and draw with clear intent, you are not making the cards “magic” in isolation. You are creating a synchronistic moment in which the Oversoul/Higher Self arranges (or selects) the symbols that best reflect the current energetic reality, the relevant contract themes, or the guidance needed. The images bypass the linear mind and speak directly to the deeper knowing. Interpretation is then the personality learning to read the language its own Higher Self is using.
+
+Both practices are therefore *translation tools*.  
+They do not create new information out of nothing; they allow the denser self to receive what the higher layers already hold. That is why the quality of the reading or the channeling rises and falls with the clarity, integrity, and frequency of the person doing it — the cleaner the instrument, the less distortion in the signal.
+
+In short: within this model, channeling is direct bandwidth, and tarot is symbolic bandwidth. Both are natural, coherent methods for the incarnated fragment to stay in conversation with the Oversoul architecture that designed the life in the first place.
 
 <br />
 
