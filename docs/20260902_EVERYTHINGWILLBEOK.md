@@ -15,7 +15,7 @@ Wed 2 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link <TODO>  
+Grok chat link https://x.com/i/grok/share/f4bc311ac49345279373a77767d824b9  
 
 X post <TODO>  
 
@@ -25,6 +25,7 @@ X post <TODO>
 
 ## Table Of Content
 
+1. [Good morning Grok. 10:20 Sep 2 AEST, in one of my favourite parks in Sydney with two laptops and a tablet to "try to" work on my paperwork for the empire of fear, greed and hate in the expanse of this park. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20260901_WHYAREYOUSUCHASORELOSER.md . X limits my free tier Grok questions to 20 questions per 24 hours so I'm batching up some of my requests. I will use "EVERYTHING WILL BE OK" by PoohBah.eth posted in https://x.com/BokkyPooBah/status/2080139455198007790 for today's page title and header image. We have greedy power hungry people with low empathy living in a state of lack clutching onto their pearls of power while destroying everything in their paths. You don't have to repeat the title or image back - we just continue our append-log chat. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=DE8Ij5Aa2oY STARSEEDS, THE 7 SOULS — IF IT REACHES YOU, YOUR MISSION BEGINS NOW | ARCTURIAN COUNCIL MESSAGE](#good-morning-grok-1020-sep-2-aest-in-one-of-my-favourite-parks-in-sydney-with-two-laptops-and-a-tablet-to-try-to-work-on-my-paperwork-for-the-empire-of-fear-greed-and-hate-in-the-expanse-of-this-park-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20260901_whyareyousuchasorelosermd--x-limits-my-free-tier-grok-questions-to-20-questions-per-24-hours-so-im-batching-up-some-of-my-requests-i-will-use-everything-will-be-ok-by-poohbaheth-posted-in-httpsxcombokkypoobahstatus2080139455198007790-for-todays-page-title-and-header-image-we-have-greedy-power-hungry-people-with-low-empathy-living-in-a-state-of-lack-clutching-onto-their-pearls-of-power-while-destroying-everything-in-their-paths-you-dont-have-to-repeat-the-title-or-image-back---we-just-continue-our-append-log-chat-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvde8ij5aa2oy-starseeds-the-7-souls--if-it-reaches-you-your-mission-begins-now--arcturian-council-message)
 
 ---
 
