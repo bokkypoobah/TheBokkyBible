@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 1 Sep 2026
-> Prev: [Mon 31 Aug 2026](20260831_WHYCANTYOULOVEYOURSELF.md) Next: []()
+> Prev: [Mon 31 Aug 2026](20260831_WHYCANTYOULOVEYOURSELF.md) Next: [Wed 2 Sep 2026](20260902_EVERYTHINGWILLBEOK.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
