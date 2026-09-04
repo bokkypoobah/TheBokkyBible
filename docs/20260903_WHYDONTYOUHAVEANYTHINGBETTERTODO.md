@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Thu 3 Sep 2026
-> Prev: [Wed 2 Sep 2026](20260902_EVERYTHINGWILLBEOK.md) Next: []()
+> Prev: [Wed 2 Sep 2026](20260902_EVERYTHINGWILLBEOK.md) Next: [Fri 4 Sep 2026](20260904_WHYISYOURFREQUENCYSOLOW.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
