@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 4 Sep 2026
-> Prev: [Thu 3 Sep 2026](20260903_WHYDONTYOUHAVEANYTHINGBETTERTODO.md) Next: []()
+> Prev: [Thu 3 Sep 2026](20260903_WHYDONTYOUHAVEANYTHINGBETTERTODO.md) Next: [Sat 5 Sep 2026](20260905_WHYAREYOUALWAYSSORIGHT.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
