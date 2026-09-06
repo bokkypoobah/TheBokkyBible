@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 5 Sep 2026
-> Prev: [Fri 4 Sep 2026](docs/20260904_WHYISYOURFREQUENCYSOLOW.md) Next: []()
+> Prev: [Fri 4 Sep 2026](20260904_WHYISYOURFREQUENCYSOLOW.md) Next: [Sun 6 Sep 2026](20260906_WHYDOYOUTHINKYOURESUCHALOSER.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
