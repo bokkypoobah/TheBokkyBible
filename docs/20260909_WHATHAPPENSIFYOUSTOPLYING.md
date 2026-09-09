@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 9 Sep 2026
-> Prev: [Tue 8 Sep 2026](20260908_WHYISYOURHEARTSOUNPURE.md) Next: []()
+> Prev: [Tue 8 Sep 2026](20260908_WHYISYOURHEARTSOUNPURE.md) Next: [Thu 10 Sep 2026](20260910_WHYAREYOUSOINCAPABLE.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -582,7 +582,7 @@ Keep walking the park. The children — and the future they will lead — are al
 
 **03:07 continuing the append-log.**
 
-<kbd><img src="images/Picture05084.png?" width="400" /></kbd>  
+<kbd><img src="images/Picture05084.png" width="400" /></kbd>  
 
 > If this finds you, you’ve reached God mode. - https://www.youtube.com/watch?v=9twLav8LQCk  
 
