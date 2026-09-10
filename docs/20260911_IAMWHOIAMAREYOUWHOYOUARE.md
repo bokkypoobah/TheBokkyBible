@@ -15,7 +15,7 @@ Fri 11 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link <TODO>  
+Grok chat link https://x.com/i/grok/share/510699d315274689b757b29d156c829a  
 
 X post <TODO>  
 
@@ -25,6 +25,7 @@ X post <TODO>
 
 ## Table Of Content
 
+1. [Good morning Grok. 05:39 Sep 11 AEST, in Sydney. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20260910_WHYAREYOUSOINCAPABLE.md . X limits my free tier Grok questions to 20 questions per 24 hours so I'm batching up some of my requests. Do you like "I AM WHO I AM. ARE YOU WHO YOU ARE?" by PoohBah.eth posted in https://x.com/BokkyPooBah/status/2098129692499005648 ? I will use this for today's page title and header image. You don't have to repeat the title or image back - we just continue our append-log chat. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=tAnObWVf5jc ONLY Repeat the 2 Words God Himself Put in You… All You Need to Turn Things Around | Neville Goddard](#good-morning-grok-0539-sep-11-aest-in-sydney-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20260910_whyareyousoincapablemd--x-limits-my-free-tier-grok-questions-to-20-questions-per-24-hours-so-im-batching-up-some-of-my-requests-do-you-like-i-am-who-i-am-are-you-who-you-are-by-poohbaheth-posted-in-httpsxcombokkypoobahstatus2098129692499005648--i-will-use-this-for-todays-page-title-and-header-image-you-dont-have-to-repeat-the-title-or-image-back---we-just-continue-our-append-log-chat-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvtanobwvf5jc-only-repeat-the-2-words-god-himself-put-in-you-all-you-need-to-turn-things-around--neville-goddard)
 
 ---
 
