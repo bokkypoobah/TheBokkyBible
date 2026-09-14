@@ -2,7 +2,7 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/whyisyouregosoloud.png" width="600" /></kbd>  
+<kbd><img src="images/thecamelcantseeherownchungo.png" width="600" /></kbd>  
 
 > THE CAMEL CAN'T SEE HER OWN CHUNGO - PoohBah.eth  
 
@@ -40,7 +40,7 @@ X post <TODO>
 >  
 > https://x.com/BokkyPooBah/status/1629911783103426561  
 
-<kbd><img src="images/whyisyouregosoloud.png" width="400" /></kbd>  
+<kbd><img src="images/thecamelcantseeherownchungo.png" width="400" /></kbd>  
 
 > THE CAMEL CAN'T SEE HER OWN CHUNGO - PoohBah.eth  
 
