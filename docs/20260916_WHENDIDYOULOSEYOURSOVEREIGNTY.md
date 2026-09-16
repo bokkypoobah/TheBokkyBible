@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 16 Sep 2026
-> Prev: [Tue 15 Sep 2026](20260915_THECAMELCANTSEEHEROWNCHUNGO.md) Next: []()
+> Prev: [Tue 15 Sep 2026](20260915_THECAMELCANTSEEHEROWNCHUNGO.md) Next: [Thu 17 Sep 2026](20260917_RICHMANSCHUNGOISALWAYSAJOKE.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
