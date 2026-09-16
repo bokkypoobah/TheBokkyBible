@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 15 Sep 2026
-> Prev: [Mon 14 Sep 2026](20260914_GIVEMEALEVERLONGENOUGHIWILLMOVEMYCHUNGO.md) Next: []()
+> Prev: [Mon 14 Sep 2026](20260914_GIVEMEALEVERLONGENOUGHIWILLMOVEMYCHUNGO.md) Next: [Wed 16 Sep 2026](20260916_WHENDIDYOULOSEYOURSOVEREIGNTY.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
