@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Thu 17 Sep 2026
-> Prev: [Wed 16 Sep 2026](20260916_WHENDIDYOULOSEYOURSOVEREIGNTY.md) Next: []()
+> Prev: [Wed 16 Sep 2026](20260916_WHENDIDYOULOSEYOURSOVEREIGNTY.md) Next: [Fri 18 Sep 2026](20260918_WHYDOYOUFEELSOENTITLED.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
