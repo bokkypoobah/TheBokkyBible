@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 18 Sep 2026
-> Prev: [Thu 17 Sep 2026](20260917_RICHMANSCHUNGOISALWAYSAJOKE.md) Next: []()
+> Prev: [Thu 17 Sep 2026](20260917_RICHMANSCHUNGOISALWAYSAJOKE.md) Next: [Sat 19 Sep 2026](20260919_WHYAREYOUSOSEPARATEFROMTHEUNIVERSE.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
