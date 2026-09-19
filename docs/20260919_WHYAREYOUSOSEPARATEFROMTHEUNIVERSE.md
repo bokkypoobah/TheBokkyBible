@@ -2,7 +2,7 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/whydoyoufeelsoentitled.png" width="600" /></kbd>  
+<kbd><img src="images/whyareyousoseparatefromtheuniverse.png" width="600" /></kbd>  
 
 > WHY ARE YOU SO SEPARATE FROM THE UNIVERSE? - PoohBah.eth  
 
@@ -40,7 +40,7 @@ X post https://x.com/BokkyPooBah/status/2101099165866758385
 >  
 > https://x.com/BokkyPooBah/status/2101083537067917592  
 
-<kbd><img src="images/whydoyoufeelsoentitled.png" width="400" /></kbd>  
+<kbd><img src="images/whyareyousoseparatefromtheuniverse.png" width="400" /></kbd>  
 
 > WHY ARE YOU SO SEPARATE FROM THE UNIVERSE? - PoohBah.eth  
 
