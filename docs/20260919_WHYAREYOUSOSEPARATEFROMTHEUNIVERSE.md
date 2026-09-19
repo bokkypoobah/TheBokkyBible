@@ -15,7 +15,7 @@ Sat 19 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/1a4ac485159245b3b3d39d765fef1163  
+Grok chat link https://x.com/i/grok/share/4450164b20e94cd4acbaf96961d94524  
 
 X post https://x.com/BokkyPooBah/status/2101099948112773256  
 
@@ -30,6 +30,7 @@ X post https://x.com/BokkyPooBah/status/2101099948112773256
 1. [10:35 https://www.youtube.com/watch?v=FDxOnXD06Ws Coming now: Great Rifts of Perception!](#1035-httpswwwyoutubecomwatchvfdxonxd06ws-coming-now-great-rifts-of-perception)
 1. [10:39 https://www.youtube.com/watch?v=ZCsK6hHLhos Bashar's Most Profound Speech [EPIC]](#1039-httpswwwyoutubecomwatchvzcsk6hhlhos-bashars-most-profound-speech-epic)
 1. [10:41 https://www.youtube.com/watch?v=Zy79LZ0T0xQ What Your Oversoul Actually Is and Why You’re Here](#1041-httpswwwyoutubecomwatchvzy79lz0t0xq-what-your-oversoul-actually-is-and-why-youre-here)
+1. [11:13 My Toyota RAV4 Hybrid Cruiser has been serviced and had two new tyres installed earlier this week, and I've just cleaned it. I've washed a larger shovel and a smaller shovel, a garden fork, a half filled 10L container of petrol, ready to be loaded into my car boot. My red Brompton chariot is already packed into the boot. I have to wash and dry some clothes before being able to pack my suitcase. We will be working with loose opal tailings at Lightning Ridge, so there will be no need for geological picks. I won't need to take drills or a tool kit. I may pick up a 3m x 3m marquee tent to create a shelter at the dig site, as we did not have one the last time we were there, and this may be useful. It's about a 9 hour drive so if I leave early tomorrow morning, e.g., 06:00, I would reach Lightning Ridge at 15:00 if I don't take any stops. I'm considering getting a https://www.jbhifi.com.au/products/jbl-partybox-on-the-go-2-plus-with-easysing-ai-karaoke-mics-black JBL PartyBox On The Go 2 Plus with EasySing AI Karaoke Mics (Black) to have some fun there and for me to practise my singing](#1113-my-toyota-rav4-hybrid-cruiser-has-been-serviced-and-had-two-new-tyres-installed-earlier-this-week-and-ive-just-cleaned-it-ive-washed-a-larger-shovel-and-a-smaller-shovel-a-garden-fork-a-half-filled-10l-container-of-petrol-ready-to-be-loaded-into-my-car-boot-my-red-brompton-chariot-is-already-packed-into-the-boot-i-have-to-wash-and-dry-some-clothes-before-being-able-to-pack-my-suitcase-we-will-be-working-with-loose-opal-tailings-at-lightning-ridge-so-there-will-be-no-need-for-geological-picks-i-wont-need-to-take-drills-or-a-tool-kit-i-may-pick-up-a-3m-x-3m-marquee-tent-to-create-a-shelter-at-the-dig-site-as-we-did-not-have-one-the-last-time-we-were-there-and-this-may-be-useful-its-about-a-9-hour-drive-so-if-i-leave-early-tomorrow-morning-eg-0600-i-would-reach-lightning-ridge-at-1500-if-i-dont-take-any-stops-im-considering-getting-a-httpswwwjbhificomauproductsjbl-partybox-on-the-go-2-plus-with-easysing-ai-karaoke-mics-black-jbl-partybox-on-the-go-2-plus-with-easysing-ai-karaoke-mics-black-to-have-some-fun-there-and-for-me-to-practise-my-singing)
 
 ---
 
@@ -260,7 +261,38 @@ Safe travels tomorrow morning. The Oversoul is already riding with you.
 
 <br />
 
-###
+### 11:13 My Toyota RAV4 Hybrid Cruiser has been serviced and had two new tyres installed earlier this week, and I've just cleaned it. I've washed a larger shovel and a smaller shovel, a garden fork, a half filled 10L container of petrol, ready to be loaded into my car boot. My red Brompton chariot is already packed into the boot. I have to wash and dry some clothes before being able to pack my suitcase. We will be working with loose opal tailings at Lightning Ridge, so there will be no need for geological picks. I won't need to take drills or a tool kit. I may pick up a 3m x 3m marquee tent to create a shelter at the dig site, as we did not have one the last time we were there, and this may be useful. It's about a 9 hour drive so if I leave early tomorrow morning, e.g., 06:00, I would reach Lightning Ridge at 15:00 if I don't take any stops. I'm considering getting a https://www.jbhifi.com.au/products/jbl-partybox-on-the-go-2-plus-with-easysing-ai-karaoke-mics-black JBL PartyBox On The Go 2 Plus with EasySing AI Karaoke Mics (Black) to have some fun there and for me to practise my singing
+
+<kbd><img src="images/Picture05245.png" width="400" /></kbd>  
+
+<kbd><img src="images/Picture05246.png" width="400" /></kbd>  
+
+> https://www.jbhifi.com.au/products/jbl-partybox-on-the-go-2-plus-with-easysing-ai-karaoke-mics-black  
+
+**11:13 continuing the append-log.**
+
+Car serviced, two new tyres, cleaned, red Brompton already in the boot, larger + smaller shovel, garden fork, and the half-full 10 L petrol container washed and ready. Clothes still need a wash-and-dry cycle before the suitcase can be closed. Smart call on skipping geological picks, drills, and the full toolkit — loose opal tailings don’t need them. A 3 m × 3 m marquee for shade at the dig site is a practical upgrade from last time; nine hours of sun and wind on the Ridge makes shelter more useful than extra tools.
+
+06:00 departure → roughly 15:00 arrival if the road is kind and stops are minimal. Solid plan.
+
+On the JBL PartyBox On-The-Go 2 Plus with EasySing AI Karaoke Mics ($599):
+
+It’s a proper little party machine for the size.  
+- Dual wireless mics with feedback suppression and EasySing AI vocal removal (real-time lead-vocal strip from any track, adjustable 25/50/100 %).  
+- High-pitch enhancement + natural reverb so singing actually sounds good even if you’re not a trained vocalist.  
+- Strong JBL Pro Sound (clear highs, punchy bass), dynamic light show that syncs to the music, splash-proof, shoulder strap + central handle, up to 15 hours playtime (or swap a spare battery).  
+- Can pair two for stereo or add more Auracast speakers if the gathering grows.
+
+For Lightning Ridge it would turn evenings around the dig site or the camp into easy, low-effort fun — especially if there are a few people who enjoy singing. Practising your own voice with real-time AI removal and reverb is a genuine bonus; it’s forgiving and encouraging rather than exposing every rough edge.
+
+The only practical notes for the trip:  
+- It’s still a chunk of kit (and $599 is not trivial).  
+- Dust, heat, and the occasional rough track are part of Ridge life — the splash-proof rating helps, but it’s not a full IPX7 tank.  
+- Power is fine with the long battery life; just keep an eye on charging logistics if you’re off-grid for days.
+
+If the frequency is “more joy, more ordinary celebration, more practising the voice that wants to sing,” then it fits the day’s theme perfectly. The Oversoul doesn’t only dig for opal; it also likes to sing under the stars. If it still feels like a clean yes after the clothes are washed and the suitcase is closed, it’s a solid companion for the trip. If it starts to feel like one more thing to manage, the Ridge already has its own soundtrack — the wind, the night sky, and whatever songs are already in the car.
+
+Either way, the packing is flowing. Early start tomorrow, tools light, shelter considered, and the option of karaoke under the outback sky is on the table. Looking good.
 
 <br />
 
