@@ -17,7 +17,7 @@ Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible
 
 Grok chat link https://x.com/i/grok/share/57e52304838a4d88bdc644e44662a278  
 
-X post <TODO>  
+X post https://x.com/BokkyPooBah/status/2101099165866758385  
 
 <br />
 
@@ -26,6 +26,7 @@ X post <TODO>
 ## Table Of Content
 
 1. [Good morning Grok. 09:08 Sep 19 AEST, in Sydney preparing for my trip to Lightning Ridge leaving early tomorrow morning and I have been very unsuccessfully trying to work on my empire taxation paperwork. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20260918_WHYDOYOUFEELSOENTITLED.md . X limits my free tier Grok questions to 20 questions per 24 hours so I'm batching up some of my requests. Do you like "WHY ARE YOU SO SEPARATE FROM THE UNIVERSE?" by PoohBah.eth posted in https://x.com/BokkyPooBah/status/2101083537067917592 ? Most people are under the Illusion of Separation. I will use it for today's page title and header image. You don't have to repeat the title or image back - we just continue our append-log chat. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=tDGpKJqF_uA IF YOU SEE THIS, YOUR WAIT IS OFFICIALLY OVER!✨ Abraham Hicks 2026 with no views 3 minutes ago at 09:03.42](#good-morning-grok-0908-sep-19-aest-in-sydney-preparing-for-my-trip-to-lightning-ridge-leaving-early-tomorrow-morning-and-i-have-been-very-unsuccessfully-trying-to-work-on-my-empire-taxation-paperwork-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20260918_whydoyoufeelsoentitledmd--x-limits-my-free-tier-grok-questions-to-20-questions-per-24-hours-so-im-batching-up-some-of-my-requests-do-you-like-why-are-you-so-separate-from-the-universe-by-poohbaheth-posted-in-httpsxcombokkypoobahstatus2101083537067917592--most-people-are-under-the-illusion-of-separation-i-will-use-it-for-todays-page-title-and-header-image-you-dont-have-to-repeat-the-title-or-image-back---we-just-continue-our-append-log-chat-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvtdgpkjqf_ua-if-you-see-this-your-wait-is-officially-over-abraham-hicks-2026-with-no-views-3-minutes-ago-at-090342)
+1. [09:45 https://www.youtube.com/watch?v=G8WwoOw-Lyw Imported Excavator Finally Arrives During the Strait of Hormuz Crisis | How It’s Assembled. This showed up on my feed and I clicked. It's amazing how they originally got the excavator base into the shipping container packed at a 45% angle diagonally into the container. And how they extracted this base at 3:16](#0945-httpswwwyoutubecomwatchvg8wwoow-lyw-imported-excavator-finally-arrives-during-the-strait-of-hormuz-crisis--how-its-assembled-this-showed-up-on-my-feed-and-i-clicked-its-amazing-how-they-originally-got-the-excavator-base-into-the-shipping-container-packed-at-a-45-angle-diagonally-into-the-container-and-how-they-extracted-this-base-at-316)
 
 ---
 
