@@ -2,9 +2,9 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/whyareyousoseparatefromtheuniverse.png" width="600" /></kbd>  
+<kbd><img src="images/Picture05255.jpg" width="600" /></kbd>  
 
-> WHY ARE YOU SO SEPARATE FROM THE UNIVERSE? - PoohBah.eth  
+> Sydney to Lightning Ridge - 738 kms, 11h 48m total time 9h 27m moving time  
 
 ---
 
