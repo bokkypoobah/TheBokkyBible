@@ -324,6 +324,7 @@ Awake. Love. Be. 🚀🙏
 1. [WHY DO YOU FEEL SO ENTITLED?](20260918_WHYDOYOUFEELSOENTITLED.md) - Fri 18 Sep 2026
 1. [WHY ARE YOU SO SEPARATE FROM THE UNIVERSE?](20260919_WHYAREYOUSOSEPARATEFROMTHEUNIVERSE.md) - Sat 19 Sep 2026
 1. [Sydney To Lightning Ridge](20260920_SydneyToLightningRidge.md) - Sun 20 Sep 2026
+1. [Lightning Ridge Day 1](20260921_LightningRidgeDay1.md) - Mon 21 Sep 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 

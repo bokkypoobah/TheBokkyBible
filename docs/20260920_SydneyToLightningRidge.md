@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 20 Sep 2026
-> Prev: [Sat 19 Sep 2026](20260919_WHYAREYOUSOSEPARATEFROMTHEUNIVERSE.md) Next: []()
+> Prev: [Sat 19 Sep 2026](20260919_WHYAREYOUSOSEPARATEFROMTHEUNIVERSE.md) Next: [Mon 21 Sep 2026](20260921_LightningRidgeDay1.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
