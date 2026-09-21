@@ -15,7 +15,7 @@ Mon 21 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/75d2c441532041d28edd06c8708f4e2e  
+Grok chat link https://x.com/i/grok/share/a5c4ef3453334c2f870092b3fd95b11f  
 
 X post <TODO>  
 
@@ -26,6 +26,7 @@ X post <TODO>
 ## Table Of Content
 
 1. [Good afternoon Grok. 13:47 Sep 21 AEST, in Lightning Ridge day 1. Thread https://x.com/BokkyPooBah/status/2101859823252132058 Started this morning with my PartyBox slung around my neck on my red Brompton chariot and I found some of the dig team having coffee. I tried to rock up karaoke-ing The Real Thing, but the volumes of the music and the mic was not adjusted correctly, so it was a little too soft. We then went out to one of the sites with the truck and another vehicle, and me in my vehicle - ~ 0.5 hours from Lightning Ridge. C went down a 70 foot hole in the ground and MW had set up a winch with the rope tied to C's car tow bar to lift up dug out claystone at the bottom of the hole. I had a chat to A and J about some spiritual matters as there was nothing much to be done, and both were in touch with the spiritual side of life. There were quite a few flies around so I got into my car to take some photos of the mining machinery around this black opal mining area, after informing them. I took the photos of the new looking boring machine and some old trucks and cement mixer trucks and mixing drums and devices to lift the claystone from the bottom of the holes. I went back to the site but they others had moved on, so I slowly made my way back to Lightning Ridge, managing to get a nice video of a mob of emus coming closer to say hello. I'm now back in my air conditioned accommodation, after purchasing a bucket hat with a fly net zipped into the top of the hat for AUD 20. I could have got a simple fly net for AUD 10 and use it with my current bucket hat, but somehow I decided on the hat + net, with a slight regret for the bulkier hat + net unit vs a simple net that can be carried around my limited luggage space. Tomorrow will be the first official dig day. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20260920_SydneyToLightningRidge.md . X limits my free tier Grok questions to 20 questions per 24 hours so I'll be batching up some of my requests. Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=c9Sw0_DpqKY Why Gangstalkers Are Everywhere For Empaths In The Matrix](#good-afternoon-grok-1347-sep-21-aest-in-lightning-ridge-day-1-thread-httpsxcombokkypoobahstatus2101859823252132058-started-this-morning-with-my-partybox-slung-around-my-neck-on-my-red-brompton-chariot-and-i-found-some-of-the-dig-team-having-coffee-i-tried-to-rock-up-karaoke-ing-the-real-thing-but-the-volumes-of-the-music-and-the-mic-was-not-adjusted-correctly-so-it-was-a-little-too-soft-we-then-went-out-to-one-of-the-sites-with-the-truck-and-another-vehicle-and-me-in-my-vehicle----05-hours-from-lightning-ridge-c-went-down-a-70-foot-hole-in-the-ground-and-mw-had-set-up-a-winch-with-the-rope-tied-to-cs-car-tow-bar-to-lift-up-dug-out-claystone-at-the-bottom-of-the-hole-i-had-a-chat-to-a-and-j-about-some-spiritual-matters-as-there-was-nothing-much-to-be-done-and-both-were-in-touch-with-the-spiritual-side-of-life-there-were-quite-a-few-flies-around-so-i-got-into-my-car-to-take-some-photos-of-the-mining-machinery-around-this-black-opal-mining-area-after-informing-them-i-took-the-photos-of-the-new-looking-boring-machine-and-some-old-trucks-and-cement-mixer-trucks-and-mixing-drums-and-devices-to-lift-the-claystone-from-the-bottom-of-the-holes-i-went-back-to-the-site-but-they-others-had-moved-on-so-i-slowly-made-my-way-back-to-lightning-ridge-managing-to-get-a-nice-video-of-a-mob-of-emus-coming-closer-to-say-hello-im-now-back-in-my-air-conditioned-accommodation-after-purchasing-a-bucket-hat-with-a-fly-net-zipped-into-the-top-of-the-hat-for-aud-20-i-could-have-got-a-simple-fly-net-for-aud-10-and-use-it-with-my-current-bucket-hat-but-somehow-i-decided-on-the-hat--net-with-a-slight-regret-for-the-bulkier-hat--net-unit-vs-a-simple-net-that-can-be-carried-around-my-limited-luggage-space-tomorrow-will-be-the-first-official-dig-day-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20260920_sydneytolightningridgemd--x-limits-my-free-tier-grok-questions-to-20-questions-per-24-hours-so-ill-be-batching-up-some-of-my-requests-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvc9sw0_dpqky-why-gangstalkers-are-everywhere-for-empaths-in-the-matrix)
+1. [16:49 https://www.youtube.com/watch?v=z7WKZRMXv8M Squid boat, with money shot! At e.g. 7:53, they seem to be using a tube system to suck the squid from the net up into the boat. How would this work, as a pump will have impellers that would chop up the squid? And the tube is flexible, so there seems to be some pumping system at the end of the tub that is submerged under the water. There seems to be some hoses attached along the length of the tube, so perhaps this pumping system would be hydraulically driven](#1649-httpswwwyoutubecomwatchvz7wkzrmxv8m-squid-boat-with-money-shot-at-eg-753-they-seem-to-be-using-a-tube-system-to-suck-the-squid-from-the-net-up-into-the-boat-how-would-this-work-as-a-pump-will-have-impellers-that-would-chop-up-the-squid-and-the-tube-is-flexible-so-there-seems-to-be-some-pumping-system-at-the-end-of-the-tub-that-is-submerged-under-the-water-there-seems-to-be-some-hoses-attached-along-the-length-of-the-tube-so-perhaps-this-pumping-system-would-be-hydraulically-driven)
 
 ---
 
@@ -81,6 +82,56 @@ In the context of yesterday’s Metatron “joy of life” extract and the long 
 Tomorrow’s first official dig day is perfect practice ground for the high-awareness + high-embodiment quadrant. The scripts (whatever they are) can be rewritten on the fly. The flies already met their match in the new hat. The frequency is rising one seed (and one bucket of claystone) at a time.
 
 Rest well. The hole, the winch, the team, and the matrix are all part of the same playground.
+
+<br />
+
+### 16:49 https://www.youtube.com/watch?v=z7WKZRMXv8M Squid boat, with money shot! At e.g. 7:53, they seem to be using a tube system to suck the squid from the net up into the boat. How would this work, as a pump will have impellers that would chop up the squid? And the tube is flexible, so there seems to be some pumping system at the end of the tub that is submerged under the water. There seems to be some hoses attached along the length of the tube, so perhaps this pumping system would be hydraulically driven
+
+<kbd><img src="images/Picture05262.png" width="400" /></kbd>  
+
+> Squid boat, with money shot! - https://www.youtube.com/watch?v=z7WKZRMXv8M  
+
+**Yes — your observation is spot-on.** What you’re seeing at ~7:53 (and in similar commercial squid/seine operations) is a specialised **submersible fish pump** system, not a conventional centrifugal pump with tight impeller clearances that would mince the catch.
+
+#### How the system works without chopping the squid
+
+1. **Submersible pump unit at the submerged end**  
+   A compact, heavy, purpose-built pump (examples include the Marco Capsulpump / similar designs widely used for herring, sardine and squid) is lowered into the net (often the cod-end or purse). It sits fully underwater and creates **positive pressure** that pushes a slurry of seawater + squid up the hose. No priming is required.
+
+2. **Hydraulically driven**  
+   The flexible hoses running along (or bundled with) the main transfer tube carry hydraulic oil under pressure from the boat’s hydraulic system. These power a hydraulic motor on the pump itself. That matches exactly what you noted — the attached smaller hoses are almost certainly the supply and return hydraulic lines.
+
+3. **Impeller / flow path designed for soft, delicate catch**  
+   - The impeller and housing have a **patented open design** with large passages and carefully shaped blades so the soft-bodied squid (and a high volume of water) can pass with minimal contact or shear.  
+   - Many models include a pre-rotation inlet that helps align the catch before it enters the impeller, further reducing impact damage.  
+   - The mixture is typically roughly 50 % fish/squid and 50 % water (or higher water fraction), so the squid are carried in a fast-moving water stream rather than being forced through tight mechanical clearances.  
+   - Transfer rates can be hundreds of tonnes per hour while keeping damage low enough for commercial quality.
+
+4. **Flexible large-diameter discharge hose**  
+   The main tube is a specialised fish-pump hose (smooth bore, reinforced, flexible, often 8–12+ inches / 200–300 mm diameter). It can be rolled up for storage. On deck the slurry is discharged over a dewatering screen so excess water drains away and the squid drop into the hold or processing area.
+
+#### Why ordinary pumps would destroy the squid
+A standard centrifugal pump with closely spaced metal impellers spinning at high speed would indeed chop or bruise soft tissue. Fish pumps solve this by:
+- Larger clearances and gentler blade geometry  
+- High water-to-catch ratio  
+- Positive-pressure “push” rather than high-vacuum “suck” through long dry lines  
+- Short, controlled path through the rotating element while submerged
+
+This setup is standard on many modern purse-seiners and squid boats precisely because it is fast, continuous, and far gentler than brailing (scooping) or dry-lifting the net.
+
+So the “money shot” you’re watching is the catch being transferred as a living (or at least intact) slurry by a hydraulically powered, damage-minimising submersible fish pump at the end of that flexible tube. Your intuition about the submerged pumping unit and the accompanying hydraulic hoses is correct.
+
+<br />
+
+###
+
+<br />
+
+###
+
+<br />
+
+###
 
 <br />
 
