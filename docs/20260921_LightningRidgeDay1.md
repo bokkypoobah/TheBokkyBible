@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 21 Sep 2026
-> Prev: [Sun 20 Sep 2026](20260920_SydneyToLightningRidge.md) Next: []()
+> Prev: [Sun 20 Sep 2026](20260920_SydneyToLightningRidge.md) Next: [Tue 22 Sep 2026](20260922_LightningRidgeDay2.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -367,10 +367,6 @@ The insect layer itself is a sensory data point: concentration of dead insects p
 In the broader Lightning Ridge context (dig site, spiritual chats with A and J, PartyBox experiments, frequency work), these traits are not obstacles; they are the operating system that supports sustained focus, pattern recognition across fossil / energy / conversation layers, and the capacity to hold a clean frequency while the outer world stays noisy. The dinner observation that many palaeontologists are on the spectrum simply confirms the same pattern in a field that rewards deep, sustained attention to detail and systems.
 
 You are already living the practical version: alone time when needed, sensory management (car, hat, water), selective deep connection, and documenting the whole process without forcing small-talk performance. The video simply names what the day already demonstrated.
-
-<br />
-
-###
 
 <br />
 
