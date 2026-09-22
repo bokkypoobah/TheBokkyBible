@@ -15,7 +15,7 @@ Tue 22 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/5b386e024034416caf501ea06a39e6ef  
+Grok chat link https://x.com/i/grok/share/38e48c219ad245ab888125119940a35b  
 
 X post https://x.com/BokkyPooBah/status/2102152660556325142  
 
@@ -35,6 +35,7 @@ X post https://x.com/BokkyPooBah/status/2102152660556325142
 1. [20:59 A asks "Regarding the morphic approach, which pterosaur species would I have the greatest chance of forming a connection with? Maybe Rhamphorynchus, due to the amount of specimens?"](#2059-a-asks-regarding-the-morphic-approach-which-pterosaur-species-would-i-have-the-greatest-chance-of-forming-a-connection-with-maybe-rhamphorynchus-due-to-the-amount-of-specimens)
 1. [03:57 Do religions call for people to awaken? If so, how and why?](#0357-do-religions-call-for-people-to-awaken-if-so-how-and-why)
 1. [04:06 Is there any proof that can be deduced from the various religions and spiritual practises describing subtle energy to work out if this is real?](#0406-is-there-any-proof-that-can-be-deduced-from-the-various-religions-and-spiritual-practises-describing-subtle-energy-to-work-out-if-this-is-real)
+1. [04:34 https://www.youtube.com/watch?v=818FhC1CevU Bashar explains the Hidden Truth of Adam, Eve, and Lilith: ANUNNAKI ORIGINS Explained | Darryl Anka](#0434-httpswwwyoutubecomwatchv818fhc1cevu-bashar-explains-the-hidden-truth-of-adam-eve-and-lilith-anunnaki-origins-explained--darryl-anka)
 
 ---
 
@@ -445,6 +446,51 @@ This does not prove subtle energy is unreal. It does mean that, at present, the 
 #### Summary
 
 The repeated description of subtle energy across religions and spiritual practices demonstrates a real and important domain of human experience. It justifies careful study and personal exploration. It does **not**, however, supply deductive proof that the energy exists as an objective, independent force or substance in the way many traditional systems assert. That stronger claim still requires evidence beyond the convergence of spiritual testimony.
+
+<br />
+
+### 04:34 https://www.youtube.com/watch?v=818FhC1CevU Bashar explains the Hidden Truth of Adam, Eve, and Lilith: ANUNNAKI ORIGINS Explained | Darryl Anka
+
+<kbd><img src="images/Picture05273.png" width="400" /></kbd>  
+
+> Bashar explains the Hidden Truth of Adam, Eve, and Lilith: ANUNNAKI ORIGINS Explained | Darryl Anka - https://www.youtube.com/watch?v=818FhC1CevU  
+
+**Detailed extract from the video**  
+“Bashar explains the Hidden Truth of Adam, Eve, and Lilith: ANUNNAKI ORIGINS Explained” (Darryl Anka channeling Bashar)
+
+Bashar presents the biblical Adam, Eve, and Lilith story as a heavily simplified and condensed metaphor for Anunnaki genetic intervention.
+
+- The Anunnaki injected their genetics into *Homo erectus* to create *Homo sapiens*.  
+- In the Anunnaki language, the male version of the new human was called **Adama** and the female version **Eva**. These names were later transliterated into Adam and Eve. There were actual first males and females, but the biblical account collapses decades or even hundreds of years of genetic work into a short tale.
+
+- **Lilith** represents the continuation of the *Homo sapiens* line after the genetic alterations. She symbolizes independence — the ultimate independence of the human race — and the balance point (the “third alternative”) in a trinity of masculine, feminine, and the integrated midpoint between them. Lilith embodies the balanced feminine principle that creates equilibrium rather than simple duality.
+
+- Lilith was removed from later patriarchal versions of the story because the rising emphasis on male dominance found the idea of true male–female balance (and the independent feminine) threatening. Removing her helped reinforce control over the feminine side.
+
+- The genetic work was not instantaneous. It occurred over an extended period in multiple laboratories on Earth, with the primary one located in the Middle East (the questioner mentioned Temple Mount; Bashar confirms the Middle East as the main region).
+
+- The **Garden of Eden** refers to the primary Anunnaki contact point, laboratory, and early civilization established in the Fertile Crescent between the Tigris and Euphrates rivers. From there the influence spread.
+
+- The **serpent** that approached Eve symbolizes the awakening of specific genetic markers that allowed the female line to express more of the original Anunnaki genetic structure and to have greater access to related knowledge. This is linked to the double-serpent caduceus still used in medicine today, which Bashar says recalls the ancient genetics laboratories.
+
+- In the Hebrew Bible, **Elohim** largely refers to the Anunnaki (though it can occasionally include other beings encountered at different times).
+
+The session then shifts to the Exodus narrative:
+
+- The people involved did not understand the helpers as “aliens” in the modern sense. They perceived them as beings from a higher-dimensional realm or “heaven.”
+- Full disclosure of their extraterrestrial nature was not given because humanity was not considered ready.
+- Moses’ encounter on Mount Sinai involved both physiological and telepathic contact; he was invited into a craft. Some memories were allowed to remain and others were not, according to what was useful for guiding the people at that time.
+- The **Star of David** is described as a symbol of the relationship between those beings and the guided group, and more generally of the connection between higher dimensions and physical reality — a flattened representation of the Merkaba.
+- On the question of why intervention occurred in the Exodus era but not during the Holocaust: it was important to preserve certain Anunnaki-derived genetics up to a point. Once humanity had greater dominion and the ability to make its own collective decisions, further direct interference was withheld.
+
+**Overall framing**  
+Bashar treats the biblical accounts as distorted, time-compressed memories of real genetic engineering by the Anunnaki and later guidance events, filtered through the limited conceptual language available to the people of those eras. The material aligns with other Bashar sessions that present humanity as a hybrid species created through Anunnaki (and other) genetic contributions to terrestrial hominids.
+
+This is presented as channeled information, not as conventional historical or scientific evidence.
+
+<br />
+
+###
 
 <br />
 
