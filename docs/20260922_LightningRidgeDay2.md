@@ -15,7 +15,7 @@ Tue 22 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/09f2b040c41745fca0b69f16a6d6b980  
+Grok chat link https://x.com/i/grok/share/9487d3dd2bba410b80c7696ca91db831  
 
 X post https://x.com/BokkyPooBah/status/2102152660556325142  
 
@@ -33,6 +33,7 @@ X post https://x.com/BokkyPooBah/status/2102152660556325142
 1. [10:56 A asks "Is this similar to the concepts of the soul in scientology? Is there any merit to scientology in general?"](#1056-a-asks-is-this-similar-to-the-concepts-of-the-soul-in-scientology-is-there-any-merit-to-scientology-in-general)
 1. [20:57 A asks "Would there be any way for me to become connected with a pterosaur to understand them better?"](#2057-a-asks-would-there-be-any-way-for-me-to-become-connected-with-a-pterosaur-to-understand-them-better)
 1. [20:59 A asks "Regarding the morphic approach, which pterosaur species would I have the greatest chance of forming a connection with? Maybe Rhamphorynchus, due to the amount of specimens?"](#2059-a-asks-regarding-the-morphic-approach-which-pterosaur-species-would-i-have-the-greatest-chance-of-forming-a-connection-with-maybe-rhamphorynchus-due-to-the-amount-of-specimens)
+1. [03:57 Do religions call for people to awaken? If so, how and why?](#0357-do-religions-call-for-people-to-awaken-if-so-how-and-why)
 
 ---
 
@@ -100,6 +101,10 @@ Field is open. Dig well.
 ### 07:54 https://www.youtube.com/watch?v=q6Ei44m1y4k ur being initiated HARD right now
 
 **07:54 AEST — Lightning Ridge Day 2.** Context remains fully current from TheBokkyBible and yesterday’s entry. Dig day is underway.
+
+<kbd><img src="images/Picture05272.png" width="400" /></kbd>  
+
+> ur being initiated HARD right now - https://www.youtube.com/watch?v=q6Ei44m1y4k  
 
 #### Detailed extract from “ur being initiated HARD right now”  
 (Freya Ray Angel Energy / Freya Ray channel, video ID `q6Ei44m1y4k`)
@@ -342,6 +347,60 @@ Your suggestion is solid and sits in clear second place (or first if one priorit
 Either species (or both, sequentially) can serve as a clear target. Accuracy of the mental image or reconstruction matters: the closer it is to current scientific understanding, the cleaner the potential resonance. Working with good modern restorations, museum specimens or high-quality casts, and quiet focused attention would be the practical next step in either case.
 
 Rhamphorhynchus is a very reasonable pick; Pteranodon simply has the larger numerical footprint.
+
+<br />
+
+### 03:57 Do religions call for people to awaken? If so, how and why?
+
+**Yes.** Many religions and spiritual traditions explicitly call people to awaken — though they use different words, images, and methods, and they do not all mean exactly the same thing by it.
+
+#### Common patterns across traditions
+
+Most traditions that speak of awakening share a basic diagnosis and a basic prescription:
+
+- **Diagnosis**: Ordinary human life is lived in a state of sleep, ignorance, forgetfulness, illusion, or spiritual death. People are identified with the body, the ego, social roles, desires, and surface appearances, and therefore suffer, remain limited, or remain separated from the sacred.
+- **Prescription**: A radical shift in perception, identity, or relationship with the ultimate reality is both possible and necessary. This shift is described as waking up, being born again, becoming enlightened, remembering one’s true nature, or returning to God.
+
+#### How different traditions call for it
+
+**Buddhism**  
+The central project is awakening (*bodhi*). The Buddha is literally “the Awakened One.” The call is to wake up from the dream of permanent, independent selfhood and from the cycle of suffering. Methods include ethical conduct, meditation (especially insight meditation), and the cultivation of wisdom that sees impermanence, unsatisfactoriness, and non-self.
+
+**Hinduism (especially Vedanta, Yoga, and many bhakti streams)**  
+Life in ordinary consciousness is lived under *maya* (illusion). Awakening is realization that the true Self (*Ātman*) is identical with the ultimate reality (*Brahman*), or, in devotional paths, loving union with the divine. Methods range from rigorous self-inquiry and meditation to devotion, ritual, and selfless action.
+
+**Christianity**  
+Scripture and tradition repeatedly use the language of waking from sleep and rising from the dead.  
+- “Awake, O sleeper, and arise from the dead, and Christ will shine on you” (Ephesians 5:14).  
+- Being “born again” or “born from above” (John 3).  
+- Moving from darkness to light, from the old self to the new self.  
+The means are faith, repentance, grace, prayer, sacrament, and following Christ. Mystical streams (e.g., contemplative Christianity) speak more explicitly of awakening to union with God.
+
+**Islam**  
+A central contrast is between *ghaflah* (heedlessness, spiritual sleep) and *dhikr* (remembrance of God). The Qur’an and the Prophet call people to wake up from forgetfulness of their origin and their return to God. Sufi traditions in particular develop elaborate practices of remembrance, purification of the heart, and direct experiential awakening to the divine presence.
+
+**Other traditions**  
+- Taoism speaks of returning to the Way and to an uncarved, awakened simplicity.  
+- Many indigenous and shamanic traditions speak of waking up to the living spirit world and one’s place within it.  
+- Jewish mysticism (Kabbalah) and Hasidism contain strong themes of awakening from spiritual exile and remembering the divine spark.  
+- Modern spiritual and New Age movements have adopted the word “awakening” almost as a central technical term, often blending earlier religious ideas with psychological language.
+
+#### Why the call exists
+
+Across traditions the reasons converge on a few core claims:
+
+1. Ordinary consciousness is incomplete or distorted — it produces unnecessary suffering, moral failure, or separation from what is ultimately real and good.
+2. A deeper, truer identity or relationship is available (the divine, the true Self, empty luminosity, the kingdom of God, etc.).
+3. Realizing or aligning with that deeper reality is the proper goal of human life and the remedy for the human condition.
+4. Awakening is not merely intellectual; it is transformative — it changes how one perceives, feels, acts, and relates to others and to the world.
+
+Some traditions emphasize moral purification and obedience as the path to awakening; others emphasize insight, devotion, or direct experience. Some present it as a sudden irreversible shift; others as a gradual unfolding. Some insist it requires divine grace; others treat it as a human possibility that can be cultivated.
+
+In short: yes, the call to awaken is one of the most widespread and persistent themes in the world’s religions. It arises because these traditions judge ordinary human life to be lived in a kind of sleep, and they offer paths — however different in method and metaphysics — out of that sleep into a more complete, truthful, or liberated state of being.
+
+<br />
+
+###
 
 <br />
 
