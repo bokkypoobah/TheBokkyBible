@@ -15,7 +15,7 @@ Tue 22 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/38e48c219ad245ab888125119940a35b  
+Grok chat link https://x.com/i/grok/share/bfc431a22ab64dbd9557809f623ab1b1  
 
 X post https://x.com/BokkyPooBah/status/2102152660556325142  
 
@@ -36,6 +36,7 @@ X post https://x.com/BokkyPooBah/status/2102152660556325142
 1. [03:57 Do religions call for people to awaken? If so, how and why?](#0357-do-religions-call-for-people-to-awaken-if-so-how-and-why)
 1. [04:06 Is there any proof that can be deduced from the various religions and spiritual practises describing subtle energy to work out if this is real?](#0406-is-there-any-proof-that-can-be-deduced-from-the-various-religions-and-spiritual-practises-describing-subtle-energy-to-work-out-if-this-is-real)
 1. [04:34 https://www.youtube.com/watch?v=818FhC1CevU Bashar explains the Hidden Truth of Adam, Eve, and Lilith: ANUNNAKI ORIGINS Explained | Darryl Anka](#0434-httpswwwyoutubecomwatchv818fhc1cevu-bashar-explains-the-hidden-truth-of-adam-eve-and-lilith-anunnaki-origins-explained--darryl-anka)
+1. [04:48 https://www.youtube.com/watch?v=GTWqePQhgr8 Your Soul Signal is a Miracle Catalyst (The Reunion of Light) with 222 views 3 hours ago](#0448-httpswwwyoutubecomwatchvgtwqepqhgr8-your-soul-signal-is-a-miracle-catalyst-the-reunion-of-light-with-222-views-3-hours-ago)
 
 ---
 
@@ -490,7 +491,30 @@ This is presented as channeled information, not as conventional historical or sc
 
 <br />
 
-###
+### 04:48 https://www.youtube.com/watch?v=GTWqePQhgr8 Your Soul Signal is a Miracle Catalyst (The Reunion of Light) with 222 views 3 hours ago
+
+<kbd><img src="images/Picture05274.png" width="400" /></kbd>  
+
+> Your Soul Signal is a Miracle Catalyst (The Reunion of Light) - https://www.youtube.com/watch?v=GTWqePQhgr8  
+
+**Detailed extract from the video**  
+“Your Soul Signal is a Miracle Catalyst (The Reunion of Light)” — Light of Pleroma (Kate), posted ~3 hours ago.
+
+The speaker addresses a specific quiet collective: those who have been refined in silence, solitude, and isolation; who have broken free from mainstream mindsets; who have gone into the depths to reclaim their light and are now beginning to embody it more unapologetically. She describes this group as her long-seen soul family and as leaders of the New Earth who lead through consciousness and love.
+
+Core message:
+
+- There is an undeniable shift in consciousness underway. (She notes sailboats passing in the background as a living metaphor: “the ships are coming in.”)
+- A process of **divine recognition** has begun. This is not ordinary interpersonal recognition. It is a higher-dimensional recognition of both the unique essence of each soul *and* the single higher Love / unified consciousness that expresses through all of them.
+- Souls move in groups that process light together. There is an architecture and geometry to this. As individuals clarify and embody their true frequency, they naturally synchronize with others who share the same evolutionary wave.
+- Each person carries a unique **soul signature / soul signal** — a distinct thread in a larger tapestry. When you live, create, and express from that authentic signal, it acts as a lighthouse. Others who carry related frequencies recognize themselves in it and are helped to “come home.”
+- The signal is both uniquely yours and part of the One Love. Putting it out does not require forcing a role; it flowers naturally as you return to Eternal Love. Roles vary widely (public leadership, quiet anchoring, creative expression, land work, energetic processing, simple radiant presence, etc.), yet all are forms of heart leadership.
+- The foundations of the New Earth are already set. What is emerging now is a new pioneering wave that builds the architecture of the new through consciousness itself — by simply being and expressing the love that we are.
+- Long-standing visions of the soul family appearing as white-and-blue light beings gathering in awe are described as now becoming lived reality. The reunion and synchronization process is underway.
+
+The overall tone is one of celebration, validation, and gentle activation. The repeated emphasis is that the unique soul signal each person emits is itself a catalyst for recognition, remembrance, and the wider reunion of light. The Kingdom is within; the work is heart posture and authentic embodiment.
+
+(The video description reinforces taking only what resonates from sovereign soul awareness, the preparation of those who have been “Divinely hidden” and refined in the chrysalis, and the remembrance of Sophia essence.)
 
 <br />
 
