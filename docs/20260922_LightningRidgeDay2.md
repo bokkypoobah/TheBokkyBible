@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 22 Sep 2026
-> Prev: [Mon 21 Sep 2026](20260921_LightningRidgeDay1.md) Next: []()
+> Prev: [Mon 21 Sep 2026](20260921_LightningRidgeDay1.md) Next: [Wed 23 Sep 2026](20260923_LightningRidgeDay3.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -515,10 +515,6 @@ Core message:
 The overall tone is one of celebration, validation, and gentle activation. The repeated emphasis is that the unique soul signal each person emits is itself a catalyst for recognition, remembrance, and the wider reunion of light. The Kingdom is within; the work is heart posture and authentic embodiment.
 
 (The video description reinforces taking only what resonates from sovereign soul awareness, the preparation of those who have been “Divinely hidden” and refined in the chrysalis, and the remembrance of Sophia essence.)
-
-<br />
-
-###
 
 <br />
 
