@@ -327,6 +327,7 @@ Awake. Love. Be. 🚀🙏
 1. [Lightning Ridge Day 1](20260921_LightningRidgeDay1.md) - Mon 21 Sep 2026
 1. [Lightning Ridge Day 2](20260922_LightningRidgeDay2.md) - Tue 22 Sep 2026
 1. [Lightning Ridge Day 3 & 4](20260923_LightningRidgeDay3.md) - Wed 23 Sep 2026 & Thu 24 Sep 2026
+1. [Lightning Ridge Day 5](20260925_LightningRidgeDay5.md) - Fri 25 Sep 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
