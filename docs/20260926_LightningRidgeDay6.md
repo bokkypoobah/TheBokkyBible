@@ -2,9 +2,9 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/Picture05282.jpg" width="400" /></kbd>  
+<kbd><img src="images/Picture05288.jpg" width="600" /></kbd>  
 
-> Double shafted emu feather, Lightning Ridge  
+> Bathtub next to a bore into the Great Artesian Basin  
 
 ---
 
@@ -15,7 +15,7 @@ Sat 26 Sep 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link <TODO>  
+Grok chat link https://x.com/i/grok/share/279b23c6f65e40158dd81e32bf661582  
 
 X post <TODO>  
 
