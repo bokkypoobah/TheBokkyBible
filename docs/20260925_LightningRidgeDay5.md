@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 25 Sep 2026
-> Prev: [Wed 23 Sep 2026 & Thu 24 Sep 2026](20260923_LightningRidgeDay3.md) Next: []()
+> Prev: [Wed 23 Sep 2026 & Thu 24 Sep 2026](20260923_LightningRidgeDay3.md) Next: [Sat 26 Sep 2026](20260926_LightningRidgeDay6.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
