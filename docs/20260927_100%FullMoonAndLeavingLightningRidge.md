@@ -48,6 +48,10 @@ Header image for today’s page as requested: the second image of the beautiful 
 
 ---
 
+<kbd><img src="images/Picture05297.png" width="400" /></kbd>  
+
+> Your Light scares their shadow. You interrupt their unconscious patterns 💙 - https://www.youtube.com/watch?v=k9e0nhHHLng  
+
 #### Detailed extract from “Your Light scares their shadow. You interrupt their unconscious patterns 💙”
 
 **Aoibheann Mary / Aoibhrann Doyle** (video ID `k9e0nhHHLng`, published ~25 Sep 2026, ~15+ min, channel focused on heart-centred power, shadow dynamics, and divine essence; site aoibhranndoyle.com).
