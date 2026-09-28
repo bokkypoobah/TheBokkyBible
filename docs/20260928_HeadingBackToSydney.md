@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 28 Sep 2026
-> Prev: [Sun 27 Sep 2026](20260927_100%FullMoonAndLeavingLightningRidge.md) Next: []()
+> Prev: [Sun 27 Sep 2026](20260927_100%FullMoonAndLeavingLightningRidge.md) Next: [Tue 29 Sep 2026](20260929_DoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
