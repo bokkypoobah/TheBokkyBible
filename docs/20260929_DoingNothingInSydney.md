@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 29 Sep 2026
-> Prev: [Mon 28 Sep 2026](20260928_HeadingBackToSydney.md) Next: []()
+> Prev: [Mon 28 Sep 2026](20260928_HeadingBackToSydney.md) Next: [Wed 30 Sep 2026](20260930_DoingMoreNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
