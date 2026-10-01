@@ -333,6 +333,7 @@ Awake. Love. Be. 🚀🙏
 1. [Heading Back To Sydney](20260928_HeadingBackToSydney.md) - Mon 28 Sep 2026
 1. [Doing Nothing In Sydney](20260929_DoingNothingInSydney.md) - Tue 29 Sep 2026
 1. [Doing More Nothing In Sydney](20260930_DoingMoreNothingInSydney.md) - Wed 30 Sep 2026
+1. [Doing Even More Nothing In Sydney](20261001_DoingEvenMoreNothingInSydney.md) - Thu 1 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
