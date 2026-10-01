@@ -51,6 +51,10 @@ X post https://x.com/BokkyPooBah/status/2105450728752107748
 
 Your new JBL Bandbox Solo (with the Martin Backpacker) from the X post https://x.com/BokkyPooBah/status/2105444856567038279 is locked in as today’s page header image. Page title: **“Doing Even More Nothing In Sydney”**. Perfect continuation — the quiet, unforced creative tool that lets guitar/vocals/stems flow without strain.
 
+<kbd><img src="images/Picture05354.png" width="400" /></kbd>  
+
+> My new JBL Bandbox Solo amp that can separate guitar and vocals from music played via Bluetooth, and my old Martin Backpacker  
+
 #### Detailed extract from “The Art of Wu Wei: What Christ & the Tao Teach About Non Forcing”
 **Destiny Finn / Godcore podcast** (video ID 7azw3JlRZCo, published ~29 Sep 2026, ~12k views / 354 likes at fetch time). Full auto-generated transcript is available and coherent. Length ~35–40 min with timestamps in description: Intro → You Are Art → The traditions → Trusting Life → Abiding → Faith and Trust → The years in tenfold.
 
