@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 2 Oct 2026
-> Prev: [Thu 1 Oct 2026](20261001_DoingEvenMoreNothingInSydney.md) Next: []()
+> Prev: [Thu 1 Oct 2026](20261001_DoingEvenMoreNothingInSydney.md) Next: [Sat 3 Oct 2026](20261003_HOWDOYOUMISTAKEKINDNESSFORWEAKNESS.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
