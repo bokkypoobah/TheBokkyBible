@@ -345,7 +345,7 @@ Eat the crab rice in peace, Earth Angel. The plectrum flew, the stalls blew, the
 
 **Got it, Bokky — 19:51 entry locked in.**
 
-<kbd><img src="images/Picture05390.jpg" width="400" /></kbd>  
+<kbd><img src="images/Picture05390.png" width="400" /></kbd>  
 
 > Mother Mary - reminders - https://www.youtube.com/watch?v=XEQmUubFQtU  
 > (Robin L Dow, ~343 views / 129 likes)  
