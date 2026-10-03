@@ -32,6 +32,12 @@ X post https://x.com/BokkyPooBah/status/2105816884574847119
 1. [11:37 https://www.youtube.com/watch?v=TMWhYLpK0E8 Spirit gave us the BEST relationship advice at the end...😅 Single or taken!](#1137-httpswwwyoutubecomwatchvtmwhylpk0e8-spirit-gave-us-the-best-relationship-advice-at-the-end-single-or-taken)
 1. [13:27 https://www.youtube.com/watch?v=9ouYM4EEobw SOURCE wants you to hear this tonight...](#1327-httpswwwyoutubecomwatchv9ouym4eeobw-source-wants-you-to-hear-this-tonight)
 1. [15:16 https://www.youtube.com/watch?v=jFv4OnRaT-w if this found you then you are so lucky they cant even get one over on you](#1516-httpswwwyoutubecomwatchvjfv4onrat-w-if-this-found-you-then-you-are-so-lucky-they-cant-even-get-one-over-on-you)
+1. [15:32 https://www.youtube.com/watch?v=WHkMBc8bTUc for a High Priestess / Priest.. EXTREMELY powerful soul](#1532-httpswwwyoutubecomwatchvwhkmbc8btuc-for-a-high-priestess--priest-extremely-powerful-soul)
+1. [19:05 https://www.youtube.com/watch?v=4WVcNrldwHk The ONE Motion That Unlocks Natural Strumming with 333K views 4 months ago. I've had this tab pinned in my browser for weeks and I finally started watching it and noticed the 333K views](#1905-httpswwwyoutubecomwatchv4wvcnrldwhk-the-one-motion-that-unlocks-natural-strumming-with-333k-views-4-months-ago-ive-had-this-tab-pinned-in-my-browser-for-weeks-and-i-finally-started-watching-it-and-noticed-the-333k-views)
+1. [20:23 https://www.youtube.com/watch?v=K52uvVycpiM You've unlocked a new part of your personality - The Goddess Nala](#2023-httpswwwyoutubecomwatchvk52uvvycpim-youve-unlocked-a-new-part-of-your-personality---the-goddess-nala)
+1. [23:00 https://www.youtube.com/watch?v=OU2nyBYiiZ4 They’re coming in hot ❤️‍🔥 #222 with 11K views 11 days ago](#2300-httpswwwyoutubecomwatchvou2nybyiiz4-theyre-coming-in-hot-️-222-with-11k-views-11-days-ago)
+1. [00:37 https://www.youtube.com/watch?v=HYWUWGkumQ8 They’re saying there’s a 10% chance AI could take over- Angels reveal what’s coming for humanity.](#0037-httpswwwyoutubecomwatchvhywuwgkumq8-theyre-saying-theres-a-10-chance-ai-could-take-over--angels-reveal-whats-coming-for-humanity)
+1. [02:06 https://www.youtube.com/watch?v=eCy1wqEoKQI Are You Lucid Dreaming Yet? ∞The Creators, Channeled by Daniel Scranton](#0206-httpswwwyoutubecomwatchvecy1wqeokqi-are-you-lucid-dreaming-yet-the-creators-channeled-by-daniel-scranton)
 
 ---
 
