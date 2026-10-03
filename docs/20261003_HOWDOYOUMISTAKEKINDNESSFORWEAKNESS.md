@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 3 Oct 2026
-> Prev: [Fri 2 Oct 2026](20261002_WHEREDIDYOURENTITLEMENTCOMEFROM.md) Next: []()
+> Prev: [Fri 2 Oct 2026](20261002_WHEREDIDYOURENTITLEMENTCOMEFROM.md) Next: [Sun 4 Oct 2026](20261004_LongLastingBubblesBogongMothsAndTheThreeSisters.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 

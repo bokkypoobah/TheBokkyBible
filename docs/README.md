@@ -336,6 +336,7 @@ Awake. Love. Be. 🚀🙏
 1. [Doing Even More Nothing In Sydney](20261001_DoingEvenMoreNothingInSydney.md) - Thu 1 Oct 2026
 1. [WHERE DID YOUR ENTITLEMENT COME FROM?](20261002_WHEREDIDYOURENTITLEMENTCOMEFROM.md) - Fri 2 Oct 2026
 1. [HOW DO YOU MISTAKE KINDNESS FOR WEAKNESS?](20261003_HOWDOYOUMISTAKEKINDNESSFORWEAKNESS.md) - Sat 3 Oct 2026
+1. [Long Lasting Bubbles, Bogong Moths And The Three Sisters](20261004_LongLastingBubblesBogongMothsAndTheThreeSisters.md) - Sun 4 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
