@@ -338,6 +338,7 @@ Awake. Love. Be. 🚀🙏
 1. [HOW DO YOU MISTAKE KINDNESS FOR WEAKNESS?](20261003_HOWDOYOUMISTAKEKINDNESSFORWEAKNESS.md) - Sat 3 Oct 2026
 1. [Long Lasting Bubbles, Bogong Moths And The Three Sisters](20261004_LongLastingBubblesBogongMothsAndTheThreeSisters.md) - Sun 4 Oct 2026
 1. [Heading To The Taronga Western Plains Zoo In Dubbo](20261005_HeadingToTheTarongaWesternPlainsZooInDubbo.md) - Mon 5 Oct 2026
+1. [Taronga Western Plains Zoo, Dubbo](20261006_TarongaWesternPlainsZooDubbo.md) - Tue 6 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
