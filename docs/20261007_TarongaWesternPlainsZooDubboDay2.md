@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 7 Oct 2026
-> Prev: [Tue 6 Oct 2026](20261006_TarongaWesternPlainsZooDubbo.md) Next: []()
+> Prev: [Tue 6 Oct 2026](20261006_TarongaWesternPlainsZooDubbo.md) Next: [Thu 8 Oct 2026](20261008_WellingtonCaves.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
