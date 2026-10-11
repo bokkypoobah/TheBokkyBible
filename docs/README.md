@@ -343,6 +343,7 @@ Awake. Love. Be. 🚀🙏
 1. [Wellington Caves](20261008_WellingtonCaves.md) - Thu 8 Oct 2026
 1. [Doing Nothing In Sydney](20261010_DoingNothingInSydney.md) - Sat 10 Oct 2026
 1. [Kookaburra Points Out A Part Downy Feather](20261011_KookaburraPointsOutAPartDownyFeather.md) - Sun 11 Oct 2026
+1. [Black Thorn Durian](20261012_BlackThornDurian.md) - Mon 12 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
