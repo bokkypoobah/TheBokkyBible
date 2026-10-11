@@ -12,7 +12,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 10 Oct 2026
-> Prev: [Thu 8 Oct 2026](20261008_WellingtonCaves.md) Next: []()
+> Prev: [Thu 8 Oct 2026](20261008_WellingtonCaves.md) Next: [Sun 11 Oct 2026](20261011_KookaburraPointsOutAPartDownyFeather.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
