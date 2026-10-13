@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 12 Oct 2026
-> Prev: [Sun 11 Oct 2026](20261011_KookaburraPointsOutAPartDownyFeather.md) Next: []()
+> Prev: [Sun 11 Oct 2026](20261011_KookaburraPointsOutAPartDownyFeather.md) Next: [Tue 13 Oct 2026](20261013_StillDoingEvenMoreNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
