@@ -2,9 +2,9 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/Picture05520.jpg" width="600" /></kbd>  
+<kbd><img src="images/Picture05527.jpg" width="600" /></kbd>  
 
-> Colourful rhino, Dubbo  
+> PEACE MEMORIAL - May you have happiness and wisdom in your life. Katoomba  
 
 ---
 
