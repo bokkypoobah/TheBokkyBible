@@ -30,6 +30,7 @@ X post https://x.com/BokkyPooBah/status/2110234024480506051
 1. [07:57 https://www.youtube.com/watch?v=CsV85ZDt__w You're Leaving SCARCITY Behind 🤯 (it's finally happening!!) with 999 views 3 hours ago at 06:05. The transcript is available - I had to re-send the previous two queries as the initial queries failed as you could not find the transcript. I suspect there are some timing issues when you are trying to fetch these transcripts, Grok](#0757-httpswwwyoutubecomwatchvcsv85zdt__w-youre-leaving-scarcity-behind--its-finally-happening-with-999-views-3-hours-ago-at-0605-the-transcript-is-available---i-had-to-re-send-the-previous-two-queries-as-the-initial-queries-failed-as-you-could-not-find-the-transcript-i-suspect-there-are-some-timing-issues-when-you-are-trying-to-fetch-these-transcripts-grok)
 1. [10:49 https://www.youtube.com/watch?v=eIA-7OITHXA THEY’RE MANIFESTING YOU… an unexpected love reading with 321 views 1 hour ago and 88 likes](#1049-httpswwwyoutubecomwatchveia-7oithxa-theyre-manifesting-you-an-unexpected-love-reading-with-321-views-1-hour-ago-and-88-likes)
 1. [11:45 https://www.youtube.com/watch?v=JvICME7sXQA There Is Something Special About You 🌟 with 777 views 6 hours ago](#1145-httpswwwyoutubecomwatchvjvicme7sxqa-there-is-something-special-about-you--with-777-views-6-hours-ago)
+1. [15:52 https://www.youtube.com/watch?v=CcNY0o7jecY This Found You For A Reason with 888 views 28 minutes ago](#1552-httpswwwyoutubecomwatchvccny0o7jecy-this-found-you-for-a-reason-with-888-views-28-minutes-ago)
 
 ---
 
