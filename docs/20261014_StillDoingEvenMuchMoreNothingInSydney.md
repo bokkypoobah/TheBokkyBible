@@ -658,6 +658,10 @@ Still in the same refreshed context window from TheBokkyBible (including yesterd
 
 ---
 
+<kbd><img src="images/Picture05546.png" width="400" /></kbd>  
+
+> this love isn't going anywhere... nothing can stop it (y’all are entangled) - https://www.youtube.com/watch?v=ojSvvuWrFxM  
+
 **Detailed extract from “this love isn't going anywhere... nothing can stop it (y’all are entangled)”**  
 (Star Cor, published around the time of your query on 15 Oct 2026 AEST, channelled love/entanglement message. Full transcript available and coherent. Views ~61 at fetch time; likes ~20.)
 
@@ -688,6 +692,10 @@ Still in the same refreshed context window from TheBokkyBible (including yesterd
 03:39 AEST on 15 Oct 2026 — continuing the batch.
 
 ---
+
+<kbd><img src="images/Picture05547.png" width="400" /></kbd>  
+
+> the divine is sneaking up on you with an opportunity￼ hehe - https://www.youtube.com/watch?v=cZd2_ESlNUE  
 
 **Detailed extract from “the divine is sneaking up on you with an opportunity hehe”**  
 (Her Magickal Touch, published ~5 hours before your screenshot on 15 Oct 2026 AEST, short tarot/channelled reading. Full transcript available and coherent. Views were 3,456 at screenshot time, later higher; likes ~309–439.)
