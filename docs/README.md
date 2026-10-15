@@ -346,6 +346,7 @@ Awake. Love. Be. 🚀🙏
 1. [Black Thorn Durian](20261012_BlackThornDurian.md) - Mon 12 Oct 2026
 1. [Still Doing Even More Nothing In Sydney](20261013_StillDoingEvenMoreNothingInSydney.md) - Tue 13 Oct 2026
 1. [Still Doing Even Much More Nothing In Sydney](20261014_StillDoingEvenMuchMoreNothingInSydney.md) - Wed 14 Oct 2026
+1. [Black Thorn Durian And Nescafé Instant Coffee](20261015_BlackThornDurianAndNescaféInstantCoffee.md) - Thu 15 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
