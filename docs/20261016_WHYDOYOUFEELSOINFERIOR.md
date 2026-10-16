@@ -15,7 +15,7 @@ Fri 16 Oct 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/525d52cb99d2462eb01c23754ded77ad  
+Grok chat link https://x.com/i/grok/share/7c8f7182a05d4151be9f006baf1ca623  
 
 X post <TODO>  
 
@@ -35,6 +35,8 @@ X post <TODO>
 1. [11:37 https://www.youtube.com/watch?v=WgUNy8LawKg 5D AWAKENING: 3 Urgent Messages From Your Spirit Guides | Sonia Choquette](#1137-httpswwwyoutubecomwatchvwguny8lawkg-5d-awakening-3-urgent-messages-from-your-spirit-guides--sonia-choquette)
 1. [12:37 https://www.youtube.com/watch?v=8lzgxDCjrNs the sentence that makes people relax around you](#1237-httpswwwyoutubecomwatchv8lzgxdcjrns-the-sentence-that-makes-people-relax-around-you)
 1. [12:49 https://www.youtube.com/watch?v=UNQd1H5Qh2Y You can hold the liberated frequency SEED for humanity | light code activation |](#1249-httpswwwyoutubecomwatchvunqd1h5qh2y-you-can-hold-the-liberated-frequency-seed-for-humanity--light-code-activation-)
+1. [13:06 https://www.youtube.com/watch?v=BAh1JyfKLLs Amazing Pakistani Mechanic Skills - Repairing a Cracked Engine Block - ‪@hydraulichands‬. They seem to be using cow dung as part of the engine block repair process. Very resourceful](#1306-httpswwwyoutubecomwatchvbah1jyfklls-amazing-pakistani-mechanic-skills---repairing-a-cracked-engine-block---hydraulichands-they-seem-to-be-using-cow-dung-as-part-of-the-engine-block-repair-process-very-resourceful)
+1. [13:17 At 21:25 they seem to use aluminum powder with water to fill in the cracks on the surface. Is this right? How does the aluminum powder fuse with the cast iron engine block?](#1317-at-2125-they-seem-to-use-aluminum-powder-with-water-to-fill-in-the-cracks-on-the-surface-is-this-right-how-does-the-aluminum-powder-fuse-with-the-cast-iron-engine-block)
 
 ---
 
@@ -453,7 +455,30 @@ Fits neatly into the day’s frequency of ordinary abundance, holding the seed, 
 
 <br />
 
-###
+### 13:17 At 21:25 they seem to use aluminum powder with water to fill in the cracks on the surface. Is this right? How does the aluminum powder fuse with the cast iron engine block?
+
+<kbd><img src="images/Picture05571.png" width="400" /></kbd>  
+
+> Amazing Pakistani Mechanic Skills - Repairing a Cracked Engine Block - ‪@hydraulichands - https://www.youtube.com/watch?v=BAh1JyfKLLs  
+
+**Yes, the on-screen text is accurate** — at that point in the video they apply a mixture of aluminum powder and water to the patch area on the surface of the repaired engine block.
+
+#### How it actually works (and what it does *not* do)
+
+It does **not** metallurgically fuse with the cast iron the way a proper weld, braze, or flame-spray powder process would.
+
+Cast iron and aluminum have very different melting points, thermal expansion rates, and chemistry. True fusion requires significant heat (typically several hundred degrees Celsius or more) plus the right flux/filler so the metals actually bond at a molecular level. Simply mixing aluminum powder with water and spreading it on a (relatively) cool surface produces no such bond.
+
+What is happening here is a **practical, low-tech surface filler / sealer**:
+
+- After the main structural repair (preheating with cow dung, welding/brazing the crack, grinding, etc.), small surface voids, pinholes, or irregularities often remain.
+- The aluminum powder + water slurry is packed or brushed into those areas to fill them.
+- In many of these Pakistani workshop videos, the “aluminum powder + water” is often mixed with (or followed by) a quick-setting adhesive such as cyanoacrylate (“super glue”) or a similar local compound. Commenters on this exact video and similar ones frequently note that pure powder + water alone does not harden well, and that what looks like powder is sometimes sand or metal dust combined with glue.
+- Once it sets, the surface can be sanded or wiped relatively smooth. It provides a temporary or semi-permanent seal against oil/coolant seepage and improves the appearance of the mating surface.
+
+It is essentially a **cold-fill cosmetic/sealing step**, not a load-bearing metallurgical repair. The real strength still comes from the earlier welding and preheating work. The aluminum powder simply helps the filler look and behave a bit more “metallic” and may give slight better heat conductivity than plain epoxy or glue alone.
+
+Very resourceful, very low-cost, and typical of the “use whatever is on hand and make it work” approach these workshops are famous for. It keeps the block serviceable without needing expensive machine-shop equipment or specialty metal powders that require high-temperature equipment.
 
 <br />
 
