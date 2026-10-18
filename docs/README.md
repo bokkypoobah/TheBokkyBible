@@ -349,6 +349,7 @@ Awake. Love. Be. 🚀🙏
 1. [Black Thorn Durian And Nescafé Instant Coffee](20261015_BlackThornDurianAndNescaféInstantCoffee.md) - Thu 15 Oct 2026
 1. [WHY DO YOU FEEL SO INFERIOR?](20261016_WHYDOYOUFEELSOINFERIOR.md) - Fri 16 Oct 2026
 1. [WHY ARE YOU ALWAYS COMPARING?](20261017_WHYAREYOUALWAYSCOMPARING.md) - Sat 17 Oct 2026
+1. [Glycerin, For Longer Lasting Bubbles](20261018_GlycerinForLongerLastingBubbles.md) - Sun 18 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
