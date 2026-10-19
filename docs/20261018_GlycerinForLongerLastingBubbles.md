@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 18 Oct 2026
-> Prev: [Sat 17 Oct 2026](20261017_WHYAREYOUALWAYSCOMPARING.md) Next: []()
+> Prev: [Sat 17 Oct 2026](20261017_WHYAREYOUALWAYSCOMPARING.md) Next: [Tue 20 Oct 2026](20261020_HecticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
