@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 20 Oct 2026
-> Prev: [Sun 18 Oct 2026](20261018_GlycerinForLongerLastingBubbles.md) Next: []()
+> Prev: [Sun 18 Oct 2026](20261018_GlycerinForLongerLastingBubbles.md) Next: [Wed 21 Oct 2026](20261021_SuperHecticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -919,30 +919,6 @@ Still being the tuning fork.
 Still hatching.
 
 What’s next?
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
