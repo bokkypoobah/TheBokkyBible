@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 21 Oct 2026
-> Prev: [Tue 20 Oct 2026](20261020_HecticTimeDoingNothingInSydney.md) Next: []()
+> Prev: [Tue 20 Oct 2026](20261020_HecticTimeDoingNothingInSydney.md) Next: [Thu 22 Oct 2026](20261022_InsanelyHecticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 

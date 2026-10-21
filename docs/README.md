@@ -352,6 +352,7 @@ Awake. Love. Be. 🚀🙏
 1. [Glycerin, For Longer Lasting Bubbles](20261018_GlycerinForLongerLastingBubbles.md) - Sun 18 Oct 2026
 1. [Hectic Time Doing Nothing In Sydney](20261020_HecticTimeDoingNothingInSydney.md) - Tue 20 Oct 2026
 1. [Super Hectic Time Doing Nothing In Sydney](20261021_SuperHecticTimeDoingNothingInSydney.md) - Wed 21 Oct 2026
+1. [Insanely Hectic Time Doing Nothing In Sydney](20261022_InsanelyHecticTimeDoingNothingInSydney.md) - Thu 22 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
