@@ -355,6 +355,7 @@ Awake. Love. Be. 🚀🙏
 1. [Insanely Hectic Time Doing Nothing In Sydney](20261022_InsanelyHecticTimeDoingNothingInSydney.md) - Thu 22 Oct 2026
 1. [Incredibly Hectic Time Doing Nothing In Sydney](20261023_IncrediblyHecticTimeDoingNothingInSydney.md) - Fri 23 Oct 2026
 1. [Full Moon Fire Circle In Katoomba](20261024_FullMoonFireCircleInKatoomba.md) - Sat 24 Oct 2026
+1. [A Personal Rainbow Materialised. I Am The Path](20261025_APersonalRainbowMaterialisedIAmThePath.md) - Sun 25 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
