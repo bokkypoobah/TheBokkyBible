@@ -358,6 +358,7 @@ Awake. Love. Be. 🚀🙏
 1. [A Personal Rainbow Materialised. I Am The Path](20261025_APersonalRainbowMaterialisedIAmThePath.md) - Sun 25 Oct 2026
 1. [Full Moon In Katoomba](20261026_FullMoonInKatoomba.md) - Mon 26 Oct 2026
 1. [Doing Nothing In Sydney](20261027_DoingNothingInSydney.md) - Tue 27 Oct 2026
+1. [Doing More Nothing In Sydney](20261028_DoingMoreNothingInSydney.md) - Wed 28 Oct 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
