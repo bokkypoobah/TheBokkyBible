@@ -15,7 +15,7 @@ Sat 31 Oct 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_6c60d735-3430-4c3c-bf23-1537a90553c1  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_e31f3d64-5457-499c-a035-6adb2954fc94  
 
 X post https://x.com/BokkyPooBah/status/2116332535613714464  
 
@@ -26,6 +26,7 @@ X post https://x.com/BokkyPooBah/status/2116332535613714464
 ## Table Of Content
 
 1. [Good morning Grok. 11:40 Oct 28 AEST in Sydney market doing more nothing. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with last entry in docs/20261028_DoingMoreNothingInSydney.md . I skipped a few days as I have been very busy doing nothing. I will use "Very Busy Doing More Nothing In Sydney" for today's page title and the image from https://x.com/BokkyPooBah/status/2116078997234958650 for today's page header image featuring some three cup chicken that I had for the first time. If the transcript is available please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=gA91ojFaJ2k A Powerful Angel Message About Why You Came To Earth 🌎](#good-morning-grok-1140-oct-28-aest-in-sydney-market-doing-more-nothing-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-last-entry-in-docs20261028_doingmorenothinginsydneymd--i-skipped-a-few-days-as-i-have-been-very-busy-doing-nothing-i-will-use-very-busy-doing-more-nothing-in-sydney-for-todays-page-title-and-the-image-from-httpsxcombokkypoobahstatus2116078997234958650-for-todays-page-header-image-featuring-some-three-cup-chicken-that-i-had-for-the-first-time-if-the-transcript-is-available-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvga91ojfaj2k-a-powerful-angel-message-about-why-you-came-to-earth-)
+1. [12:15 I've been working on https://github.com/bokkypoobah/onlyfens2 the last few days. I've just added some screenshots to the README.md .In particular, the expiry term breakdown is very useful for me, as I can see which names I will need to extend, and which I don't have to worry about for a while](#1215-ive-been-working-on-httpsgithubcombokkypoobahonlyfens2-the-last-few-days-ive-just-added-some-screenshots-to-the-readmemd-in-particular-the-expiry-term-breakdown-is-very-useful-for-me-as-i-can-see-which-names-i-will-need-to-extend-and-which-i-dont-have-to-worry-about-for-a-while)
 
 ---
 
@@ -81,7 +82,37 @@ Enjoy the three-cup chicken (and whatever today’s “nothing” brings), king.
 
 <br />
 
-###
+### 12:15 I've been working on https://github.com/bokkypoobah/onlyfens2 the last few days. I've just added some screenshots to the README.md .In particular, the expiry term breakdown is very useful for me, as I can see which names I will need to extend, and which I don't have to worry about for a while
+
+<kbd><img src="images/Picture05740.png" width="400" /></kbd>  
+
+> Set up your Ethereum accounts in the Accounts tab - https://bokkypoobah.github.io/onlyfens2/  
+
+<kbd><img src="images/Picture05741.png" width="400" /></kbd>  
+
+> Click Sync and view your names in the ENS Names tab  
+
+<kbd><img src="images/Picture05742.png" width="400" /></kbd>  
+
+> View your names by expiry sorted into a term bucket #1  
+
+<kbd><img src="images/Picture05743.png" width="400" /></kbd>  
+
+> View your names by expiry sorted into a term bucket #2  
+
+**Nice work on onlyfens2.**
+
+Just pulled the latest README — the screenshots are in and looking clean:
+
+- **Accounts** tab for multi-account setup  
+- **ENS Names** after Sync  
+- **Summary** with the two views, including the expiry term breakdown sorted into buckets  
+
+That expiry term breakdown is exactly the high-signal feature. Being able to see at a glance which names need attention soon versus which ones you can safely ignore for months (or years) removes a whole class of mental overhead. Perfect for keeping the portfolio tidy without constant checking.
+
+This rewrite using the grails.app JSON API was the right call after the Infura `getLog` 10k-block limit broke the original onlyfens. Multi-account + clean term bucketing makes it properly useful as a portfolio manager.
+
+How’s the data looking on your actual names right now? Any clusters of expiries that surprised you, or is the spread pretty comfortable?
 
 <br />
 
