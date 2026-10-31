@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 31 Oct 2026
-> Prev: [Wed 28 Oct 2026](20261028_DoingMoreNothingInSydney.md) Next: []()
+> Prev: [Wed 28 Oct 2026](20261028_DoingMoreNothingInSydney.md) Next: [Sun 1 Nov 2026](20261101_HecticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -352,26 +352,6 @@ Blockchain intelligence firms (TRM Labs, Chainalysis and others) assess with hig
 Crypto prices dipped on the news (Bitcoin briefly fell toward the $77,000 area), but the market has been relatively resilient given Binance’s full coverage pledge and the scale of frozen funds.
 
 This is still an active investigation, so details may continue to evolve.
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
