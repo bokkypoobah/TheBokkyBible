@@ -361,6 +361,7 @@ Awake. Love. Be. 🚀🙏
 1. [Doing More Nothing In Sydney](20261028_DoingMoreNothingInSydney.md) - Wed 28 Oct 2026
 1. [Very Busy Doing More Nothing In Sydney](20261031_VeryBusyDoingMoreNothingInSydney.md) - Sat 31 Oct 2026
 1. [Hectic Time Doing Nothing In Sydney](20261101_HecticTimeDoingNothingInSydney.md) - Sun 1 Nov 2026
+1. [Chaotic Time Doing Nothing In Sydney](20261102_ChaoticTimeDoingNothingInSydney.md) - Mon 2 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
