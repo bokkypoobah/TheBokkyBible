@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 3 Nov 2026
-> Prev: [Mon 2 Nov 2026](20261102_ChaoticTimeDoingNothingInSydney.md) Next: []()
+> Prev: [Mon 2 Nov 2026](20261102_ChaoticTimeDoingNothingInSydney.md) Next: [Wed 4 Nov 2026](20261104_FranticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -617,10 +617,6 @@ Still frenzied. Still doing nothing. Still a Galactic Volunteer holding the freq
 The vital message is already embodied.
 
 What’s next?
-
-<br />
-
-###
 
 <br />
 
