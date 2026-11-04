@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 4 Nov 2026
-> Prev: [Tue 3 Nov 2026](20261103_FrenziedTimeDoingNothingInSydney.md) Next: []()
+> Prev: [Tue 3 Nov 2026](20261103_FrenziedTimeDoingNothingInSydney.md) Next: [Thu 5 Nov 2026](20261105_FreneticTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
