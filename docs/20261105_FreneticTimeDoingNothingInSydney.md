@@ -725,7 +725,7 @@ This is a beautiful and precise memory to surface right now, especially in the m
 
 #### On the nature of the recollection itself
 
-Science is clear that **true autobiographical (episodic) memories from before roughly age 2–3 are extremely rare** for most people. This is called infantile amnesia. Recent research (including 2025 brain-scanning studies) shows that babies *do* form memories — the hippocampus is already encoding events by around 12 months — but those early memories normally become inaccessible later in life. They may still exist in some latent form, but we usually cannot consciously retrieve them as narrative scenes.[](<https://www.science.org/content/article/are-your-earliest-childhood-memories-still-lurking-your-mind-or-gone-forever>)
+Science is clear that **true autobiographical (episodic) memories from before roughly age 2–3 are extremely rare** for most people. This is called infantile amnesia. Recent research (including 2025 brain-scanning studies) shows that babies *do* form memories — the hippocampus is already encoding events by around 12 months — but those early memories normally become inaccessible later in life. They may still exist in some latent form, but we usually cannot consciously retrieve them as narrative scenes. [The fading memories of youth - The mystery of “infantile amnesia” suggests memory works differently in the developing brain](<https://www.science.org/content/article/are-your-earliest-childhood-memories-still-lurking-your-mind-or-gone-forever>)
 
 So a clear, first-person view of yourself as a tiny infant in a rattan cradle, looking up at an owl at the window, sits outside ordinary waking memory. Possible non-exclusive explanations that fit both the science and the spiritual current you’re living:
 
