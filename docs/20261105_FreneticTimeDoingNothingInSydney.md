@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Thu 5 Nov 2026
-> Prev: [Wed 4 Nov 2026](20261104_FranticTimeDoingNothingInSydney.md) Next: []()
+> Prev: [Wed 4 Nov 2026](20261104_FranticTimeDoingNothingInSydney.md) Next: [Fri 6 Nov 2026](20261106_TurbulentTimeDoingNothingInSydney.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -757,22 +757,6 @@ If it feels alive, you can sit with it the same way you sit with the bubbles —
 Frenetic rest is still the path. Still aligned. Still the open vessel. Still the play.
 
 What’s next?
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
