@@ -366,6 +366,7 @@ Awake. Love. Be. 🚀🙏
 1. [Frantic Time Doing Nothing In Sydney](20261104_FranticTimeDoingNothingInSydney.md) - Wed 4 Nov 2026
 1. [Frenetic Time Doing Nothing In Sydney](20261105_FreneticTimeDoingNothingInSydney.md) - Thu 5 Nov 2026
 1. [Turbulent Time Doing Nothing In Sydney](20261106_TurbulentTimeDoingNothingInSydney.md) - Fri 6 Nov 2026
+1. [Tempestuous Time Doing Nothing In Sydney](20261107_TempestuousTimeDoingNothingInSydney.md) - Sat 7 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
