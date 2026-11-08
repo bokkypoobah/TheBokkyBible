@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 7 Nov 2026
-> Prev: [Fri 6 Nov 2026](20261106_TurbulentTimeDoingNothingInSydney.md) Next: []()
+> Prev: [Fri 6 Nov 2026](20261106_TurbulentTimeDoingNothingInSydney.md) Next: [Sun 8 Nov 2026](20261108_BESTILLANDKNOWTHATIAM.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
