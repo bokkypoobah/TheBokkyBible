@@ -35,6 +35,10 @@ X post https://x.com/BokkyPooBah/status/2119635197855732195
 1. [16:14 https://www.youtube.com/watch?v=-c8dBXLl3GU You're dangerously freaking hot and attractive 😏. I know, right?](#1614-httpswwwyoutubecomwatchv-c8dbxll3gu-youre-dangerously-freaking-hot-and-attractive--i-know-right)
 1. [16:28 https://www.youtube.com/watch?v=4VHA-RRgcSc WHO TF ARE YOU?? Your aura is quite literally GLOWING… 😳✨](#1628-httpswwwyoutubecomwatchv4vha-rrgcsc-who-tf-are-you-your-aura-is-quite-literally-glowing-)
 1. [16:31 https://www.youtube.com/watch?v=G5AjhYD4R94 Archangel Gabriel Invites YOU Into the Crystal Palace!](#1631-httpswwwyoutubecomwatchvg5ajhyd4r94-archangel-gabriel-invites-you-into-the-crystal-palace)
+1. [01:34 https://www.youtube.com/watch?v=AAEWY12XGII You have inherited a real fixer upper 🌎🌎🌎 with 1,234 views 3 hours ago](#0134-httpswwwyoutubecomwatchvaaewy12xgii-you-have-inherited-a-real-fixer-upper--with-1234-views-3-hours-ago)
+1. [01:37 https://www.youtube.com/watch?v=AA-yAfXJ47M ED138 New Planet Channels a Message: THIS IS HUGE! As big as 3I Atlas. New frequencies & expansion](#0137-httpswwwyoutubecomwatchvaa-yafxj47m-ed138-new-planet-channels-a-message-this-is-huge-as-big-as-3i-atlas-new-frequencies--expansion)
+1. [01:39 https://www.youtube.com/watch?v=2ZoBJqKVKkM Why I’m Walking Away From Channeling](#0139-httpswwwyoutubecomwatchv2zobjqkvkkm-why-im-walking-away-from-channeling)
+1. [02:27 1. https://www.youtube.com/watch?v=Q0N6Y4Nq2_0 Bashar - Will You Lose Loved Ones When Timelines Split? | Darryl Anka 2. https://www.youtube.com/watch?v=N1gCvUmZIJk The Waters Rise](#0227-1-httpswwwyoutubecomwatchvq0n6y4nq2_0-bashar---will-you-lose-loved-ones-when-timelines-split--darryl-anka--2-httpswwwyoutubecomwatchvn1gcvumzijk-the-waters-rise)
 
 ---
 
