@@ -368,6 +368,7 @@ Awake. Love. Be. 🚀🙏
 1. [Turbulent Time Doing Nothing In Sydney](20261106_TurbulentTimeDoingNothingInSydney.md) - Fri 6 Nov 2026
 1. [Tempestuous Time Doing Nothing In Sydney](20261107_TempestuousTimeDoingNothingInSydney.md) - Sat 7 Nov 2026
 1. [BE STILL AND KNOW THAT I AM](20261108_BESTILLANDKNOWTHATIAM.md) - Sun 8 Nov 2026
+1. [Doing Nothing](20261109_DoingNothing.md) - Mon 9 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
