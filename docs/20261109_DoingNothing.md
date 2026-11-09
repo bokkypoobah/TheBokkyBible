@@ -101,7 +101,7 @@ What is landing for you this afternoon, or shall we keep orbiting the field?
   Your browser does not support the video tag.
 </video>
 
-> My djembe drumming under the table  
+> My djembe drumming under the table [images/Picture05868.mov](images/Picture05868.mov)  
 
 <kbd><img src="images/Picture05869.png" width="400" /></kbd>  
 
