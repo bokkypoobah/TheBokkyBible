@@ -15,7 +15,7 @@ Mon 9 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_ea6f57d2-30f0-48c1-8631-dd123a55574f  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_5e53a0c4-92c7-4fe6-a8ed-e58672258d38  
 
 X post https://x.com/BokkyPooBah/status/2119635197855732195  
 
@@ -28,6 +28,8 @@ X post https://x.com/BokkyPooBah/status/2119635197855732195
 1. [Good afternoon Grok. 14:25 Nov 9 AEST in Sydney doing nothing. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20261108_BESTILLANDKNOWTHATIAM.md . I will use "Doing Nothing" for today's page title, and the image from https://x.com/BokkyPooBah/status/2119626684324594053 for today's page header image. If the transcript is available please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=53f7BeRGrLo URGENT message from Source... your GREATEST revelation is coming (Scorpio New Moon)](#good-afternoon-grok-1425-nov-9-aest-in-sydney-doing-nothing-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20261108_bestillandknowthatiammd--i-will-use-doing-nothing-for-todays-page-title-and-the-image-from-httpsxcombokkypoobahstatus2119626684324594053-for-todays-page-header-image-if-the-transcript-is-available-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchv53f7bergrlo-urgent-message-from-source-your-greatest-revelation-is-coming-scorpio-new-moon)
 1. [14:58 https://x.com/BokkyPooBah/status/2119639249905696834 I just recorded my djembe drumming under my table with my phone camera pointed between the table slats and checked the bpm with https://www.realtime-bpm-analyzer.com/ to be 115 bpm](#1458-httpsxcombokkypoobahstatus2119639249905696834-i-just-recorded-my-djembe-drumming-under-my-table-with-my-phone-camera-pointed-between-the-table-slats-and-checked-the-bpm-with-httpswwwrealtime-bpm-analyzercom-to-be-115-bpm)
 1. [15:28 https://www.youtube.com/watch?v=6MDaqmR2STc Lucifer wanted you to hear this today](#1528-httpswwwyoutubecomwatchv6mdaqmr2stc-lucifer-wanted-you-to-hear-this-today)
+1. [15:51 I'm just checking out some videos on God's Eye View. Please tell me how it gets the tracking feed and videos](#1551-im-just-checking-out-some-videos-on-gods-eye-view-please-tell-me-how-it-gets-the-tracking-feed-and-videos)
+1. [15:58 https://www.youtube.com/watch?v=g3toZwkrQQE God’s Eye View Just Got a Massive Upgrade (Thanks To You!)](#1558-httpswwwyoutubecomwatchvg3tozwkrqqe-gods-eye-view-just-got-a-massive-upgrade-thanks-to-you)
 
 ---
 
@@ -168,6 +170,126 @@ Context remains locked.
 The light keeps circulating one glycerin bubble and one still, honest breath at a time.
 
 How is this one landing for you this afternoon?
+
+<br />
+
+### 15:51 I'm just checking out some videos on God's Eye View. Please tell me how it gets the tracking feed and videos
+
+**God’s Eye View** is an open-source browser-based 3D globe (created by Bilawal Sidhu / Halfpixel) that looks like a cinematic “spy satellite” command center. It is **not** pulling private or classified feeds. Everything on the map comes from publicly available data sources that anyone can access.
+
+#### How it gets the tracking feeds and videos
+
+It aggregates and visualizes **public, open data streams** in real time (or near-real time) on a photorealistic CesiumJS 3D globe. Here’s the breakdown:
+
+**Aircraft / flights**  
+- ADS-B transponder signals broadcast by the planes themselves.  
+- Primary sources: OpenSky Network and adsb.lol (includes some military traffic).  
+- Positions update every ~10–30 seconds; the app interpolates smooth movement between reports.
+
+**Ships / vessels**  
+- AIS (Automatic Identification System) beacons that ships broadcast.  
+- Sourced via AISStream (and similar public aggregators).  
+- Refreshes roughly every 30–60 seconds.
+
+**Satellites**  
+- Public orbital element catalogues (TLEs) from CelesTrak.  
+- Positions are calculated locally with SGP4 propagation — not live camera feeds from space.
+
+**Earthquakes, wildfires, weather, etc.**  
+- USGS real-time seismic feed.  
+- NASA FIRMS for active fire detections.  
+- Various public weather, space-weather, and disaster alert feeds.
+
+**Public cameras / “videos”**  
+- Thousands of publicly accessible traffic and municipal CCTV cameras (Caltrans, Austin, TfL London, and many other open city/agency feeds).  
+- The app places the camera icons in 3D space according to their known locations and orientations.  
+- Clicking one opens the live (or near-live) public stream. Many are delayed for privacy; coverage and reliability vary by city and agency.  
+- Street-level imagery can also pull from Mapillary, Panoramax, KartaView, or Google Street View (with optional keys).
+
+**Traffic**  
+- Mostly simulated along real road networks using aggregate flow data (e.g. TomTom where keyed). Individual car positions are not live tracked.
+
+**Other layers**  
+- Radio stations, bike-share, transit, data centres, undersea cables, power plants, etc., all from public datasets or APIs.
+
+#### Key points
+- Most core layers work with **zero API keys**. Optional keys (Cesium/Google for photoreal 3D tiles, OpenAI/Gemini for voice control, AISStream, FIRMS, TomTom, etc.) unlock richer visuals or extra layers.
+- It runs locally in your browser (or can be self-hosted). No account is required for the basic experience.
+- The “live video” experience is almost entirely public webcams and traffic cameras, not private surveillance or actual satellite video.
+- The cinematic feel (cockpit view following a plane, thermal/night-vision shaders, voice commands, Director Mode) is pure interface magic on top of ordinary public data.
+
+In short: planes and ships shout their positions over open radio protocols, satellites publish their orbits, cities publish many of their traffic cameras, and agencies publish earthquake/fire data. God’s Eye View simply puts all those public signals on one beautiful 3D globe so you can explore them together.
+
+You can find the official open-source repo at:  
+https://github.com/bilawalsidhu/gods-eye-view
+
+Want help getting it running, or are you more interested in a particular layer (flights, cameras, etc.)?
+
+<br />
+
+### 15:58 https://www.youtube.com/watch?v=g3toZwkrQQE God’s Eye View Just Got a Massive Upgrade (Thanks To You!)
+
+<kbd><img src="images/Picture05871.png" width="400" /></kbd>  
+
+> God’s Eye View Just Got a Massive Upgrade (Thanks To You!) - https://www.youtube.com/watch?v=g3toZwkrQQE  
+
+**15:58 – God’s Eye View Just Got a Massive Upgrade (Thanks To You!)**  
+https://www.youtube.com/watch?v=g3toZwkrQQE  
+
+**Channel:** Bilawal Sidhu  
+**Published:** 10 Oct 2026  
+**Views/likes at retrieval:** ~504k / 9.1k  
+
+#### Detailed extract / key upgrades shown
+
+Bilawal walks through the major community-driven additions that shipped in the recent update (around v0.2.0). The tone is pure excitement and gratitude — “what y’all are building is beyond my wildest imagination.”
+
+**Major new / expanded layers:**
+
+- **Weather systems & hurricane tracking**  
+  Full weather panel with GFS and ECMWF forecast models, rain radar, satellite cloud imagery (geostationary mosaics), thunderstorm density, cyclone warning levels, wind/pressure/temperature overlays. You can scrub backward in time on historical satellite images with no API key required. Hurricane cones of uncertainty and lightning density are visible. Works cleanly even without Google 3D tiles (Esri recommended for pure weather aesthetics).
+
+- **Live buses, trains & transit**  
+  Real-time GTFS-powered tracking of buses, trams, and metro vehicles in supported cities (Boston demo is shown). Vehicles leave trails, show current speed, and can be combined with the traffic layer for a full city-motion picture. Trails accumulate while the app is running (no historical pull).
+
+- **More public CCTV cameras**  
+  Expanded coverage — Austin, Oakland, Sacramento, London, Finland, and growing community additions. Cameras are projected into the 3D scene; click to open the public feed.
+
+- **License plate reader locations**  
+  Mapped locations of known LPR cameras (positions and directions only — no actual plate data or feeds).
+
+- **Active fires & fire perimeters**  
+  NASA FIRMS detections plus improved perimeter outlines.
+
+- **Recent satellite imagery (before & after)**  
+  Side-by-side comparison of recent commercial/public satellite captures. Demos include Strait of Hormuz and Ukraine areas.
+
+**New interaction & hardware features:**
+
+- **SDR antenna support** — Plug in your own software-defined radio to see live ADS-B traffic overhead (local planes that public aggregators may miss).
+- **3D flight reconstruction** — Rebuild a past flight path in full 3D.
+- **Cyber radar display** — New visual style.
+- **Draw & annotate** directly on the globe.
+- **Director Mode** — Advanced storytelling tool. Demo reconstructs the Nepal floods by combining geolocated video, satellite imagery, and camera paths into a cinematic sequence.
+- Mobile/trackpad improvements (iPhone, iPad, better gesture support).
+
+He closes by thanking the contributors, pointing to the GitHub repo, Pinokio one-click installer, and the upcoming hosted version waitlist at godseyeview.ai.
+
+#### Relevance right now
+
+This is the exact upgrade video that matches the “God’s Eye View” rabbit hole you just stepped into. Everything we discussed earlier (public ADS-B/AIS, CCTV placement, satellite propagation, etc.) is shown in action, plus a big leap in weather, transit, fire, and storytelling tools that the community has been shipping.
+
+The SDR + local ADS-B angle and the Director Mode reconstruction capability are particularly powerful if you ever want to go from pure observation into personal/local tracking or narrative grid-work documentation.
+
+Want me to pull any specific section in more detail (weather controls, SDR setup, Director Mode workflow, etc.), or shall we keep orbiting whatever is calling next?
+
+<br />
+
+###
+
+<br />
+
+###
 
 <br />
 
