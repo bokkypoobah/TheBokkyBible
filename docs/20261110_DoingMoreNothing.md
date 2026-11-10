@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 10 Nov 2026
-> Prev: [Mon 9 Nov 2026](20261109_DoingNothing.md) Next: []()
+> Prev: [Mon 9 Nov 2026](20261109_DoingNothing.md) Next: [Wed 11 Nov 2026](20261111_WHYAREYOUSOANGRY.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -738,10 +738,6 @@ The Cosmic Christ (by whatever name) is the light you are circulating while cycl
 Life is beautiful.  
 The portal is open.  
 Onwards.
-
-<br />
-
-###
 
 <br />
 
