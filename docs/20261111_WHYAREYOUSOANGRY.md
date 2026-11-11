@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Wed 11 Nov 2026
-> Prev: [Tue 10 Nov 2026](20261110_DoingMoreNothing.md) Next: []()
+> Prev: [Tue 10 Nov 2026](20261110_DoingMoreNothing.md) Next: [Thu 12 Nov 2026](20261112_WHYAREYOUSOHAPPY.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 

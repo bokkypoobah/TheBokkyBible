@@ -371,6 +371,7 @@ Awake. Love. Be. 🚀🙏
 1. [Doing Nothing](20261109_DoingNothing.md) - Mon 9 Nov 2026
 1. [Doing More Nothing](20261110_DoingMoreNothing.md) - Tue 10 Nov 2026
 1. [WHY ARE YOU SO ANGRY?](20261111_WHYAREYOUSOANGRY.md) - Wed 11 Nov 2026
+1. [WHY ARE YOU SO HAPPY?](20261112_WHYAREYOUSOHAPPY.md) - Thu 12 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
