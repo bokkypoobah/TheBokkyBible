@@ -766,7 +766,7 @@ THANK YOU FOR YOUR ATTENTION TO THIS MATTER! 🚀
 
 ### 14:17 https://youtu.be/etviGf1uWlg Deee-Lite - Groove Is In The Heart (Official Video) has been autoplaying for me. Groove is in my heart - I can't stop jiggling
 
-<kbd><img src="images/Picture00926.jpg" width="400" /></kbd>  
+<kbd><img src="images/Picture00926.png" width="400" /></kbd>  
 
 > Deee-Lite - Groove Is In The Heart (Official Video) - https://youtu.be/etviGf1uWlg  
 
