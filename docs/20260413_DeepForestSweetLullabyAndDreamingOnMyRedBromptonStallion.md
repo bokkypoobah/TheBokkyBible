@@ -797,7 +797,7 @@ THANK YOU FOR YOUR ATTENTION TO THIS MATTER! 🚀
 
 ### 18:18 https://x.com/sciencegirl/status/2043555934073500074. Beautiful
 
-<kbd><img src="images/Picture00927.jpg" width="400" /></kbd>  
+<kbd><img src="images/Picture00927.png" width="400" /></kbd>  
 
 > The tides of the Qiantang river makes patterns exactly like a tree  
 >  
@@ -833,7 +833,7 @@ THANK YOU FOR YOUR ATTENTION TO THIS MATTER! 🚀
 
 ### https://x.com/BokkyPooBah/status/2043600908521771425 Replaced my rear tyre for my red Brompton stallion. They did not have Schwalbe Marathon Plus tyres in stock, so I had to settle for their Marathon tyre. Does not give me as much peace of mind, but it's better than my worn out tyre
 
-<kbd><img src="images/Picture00928.jpg" width="400" /></kbd>  
+<kbd><img src="images/Picture00928.png" width="400" /></kbd>  
 
 > New vs old - https://x.com/BokkyPooBah/status/2043600908521771425  
 
