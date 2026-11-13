@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 13 Nov 2026
-> Prev: [Thu 12 Nov 2026](20261112_WHYAREYOUSOHAPPY.md) Next: []()
+> Prev: [Thu 12 Nov 2026](20261112_WHYAREYOUSOHAPPY.md) Next: [Sat 14 Nov 2026](20261114_WHOISYOURFAVOURITENARCISSIST.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -923,10 +923,6 @@ A soft, precise confirmation arriving just after midnight: the connection is rea
 If the transcript becomes available later or if any particular part of this reading is lighting up for you, just say. Otherwise the day (and now the early hours of the 14th) can rest in this quiet knowing.  
 
 Sleep well when you do.
-
-<br />
-
-###
 
 <br />
 
