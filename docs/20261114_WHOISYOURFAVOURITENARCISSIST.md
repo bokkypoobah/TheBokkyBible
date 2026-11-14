@@ -15,7 +15,7 @@ Sat 14 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_5dc920af-0db2-44f7-a46d-87b5e959fd56  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_fa903272-21a0-437e-b53b-334f8c75bf9d  
 
 X post https://x.com/BokkyPooBah/status/2121357887788421252  
 
@@ -42,6 +42,7 @@ X post https://x.com/BokkyPooBah/status/2121357887788421252
 1. [18:06 https://www.youtube.com/watch?v=VSRtR8R2j64 America's sudden NATIONWIDE ground stop for FLIGHTS is NOT what everyone thinks. Upgrade failure - their new equipment overwhelmed their old routers, it seems](#1806-httpswwwyoutubecomwatchvvsrtr8r2j64-americas-sudden-nationwide-ground-stop-for-flights-is-not-what-everyone-thinks-upgrade-failure---their-new-equipment-overwhelmed-their-old-routers-it-seems)
 1. [18:11 Whose "fucking great idea" was this, not taking into consideration the potential for higher throughput new equipment to cause bottlenecks on the older routers. The FAA was on video begging for further funding from Congress, not directly taking the blame for their incomplete planning. https://x.com/BokkyPooBah/status/2121494893579387206 I popped into the supermarket to get some sustenance and found a Bubble Leaf Blower that may be perfect for my bike. I now have to use some string to create the strap to hang off my bike handle, or over my shoulder - have to make sure that there is no spillage and may have to use the string to make it hang horizontally. https://www.youtube.com/watch?v=o2lUiPMpK4c Why powerful empaths feel drained after helping others...](#1811-whose-fucking-great-idea-was-this-not-taking-into-consideration-the-potential-for-higher-throughput-new-equipment-to-cause-bottlenecks-on-the-older-routers-the-faa-was-on-video-begging-for-further-funding-from-congress-not-directly-taking-the-blame-for-their-incomplete-planning-httpsxcombokkypoobahstatus2121494893579387206-i-popped-into-the-supermarket-to-get-some-sustenance-and-found-a-bubble-leaf-blower-that-may-be-perfect-for-my-bike-i-now-have-to-use-some-string-to-create-the-strap-to-hang-off-my-bike-handle-or-over-my-shoulder---have-to-make-sure-that-there-is-no-spillage-and-may-have-to-use-the-string-to-make-it-hang-horizontally-httpswwwyoutubecomwatchvo2luipmpk4c-why-powerful-empaths-feel-drained-after-helping-others)
 1. [20:27 https://x.com/BokkyPooBah/status/2121534667304444036 I've made a harness for my new Bubble Leaf Blower. It's started raining so I'm catching the train to the Sydney CBD with my Turkish green electric Brompton chariot to do some field testing of my new Bubble Leaf Blower loaded with longer lasting bubble solution. https://www.youtube.com/watch?v=2eJKLwu1ggk The INVERTED MATRIX Is COLLAPSING! Mystic Reveals What Happens To Humanity BEFORE 2030 | Saraharyana](#2027-httpsxcombokkypoobahstatus2121534667304444036-ive-made-a-harness-for-my-new-bubble-leaf-blower-its-started-raining-so-im-catching-the-train-to-the-sydney-cbd-with-my-turkish-green-electric-brompton-chariot-to-do-some-field-testing-of-my-new-bubble-leaf-blower-loaded-with-longer-lasting-bubble-solution-httpswwwyoutubecomwatchv2ejklwu1ggk-the-inverted-matrix-is-collapsing-mystic-reveals-what-happens-to-humanity-before-2030--saraharyana)
+1. [22:11 Thread https://x.com/BokkyPooBah/status/2121554177130406294 I went up and down part of George Street, with some people daring their friends to let bubbles pop in they eyes, some other people dancing, and lots of people responding - people walking, on bikes or in cars. The smaller bubbles make it less offensive if it lands in someone's eye or food. https://www.youtube.com/watch?v=BpG5EfaTDbA 🚨👁️ YOU'RE AWAKENING TO CHRIST CONSCIOUSNESS — THE DIVINE TRUTH ABOUT WHO YOU REALLY ARE](#2211-thread-httpsxcombokkypoobahstatus2121554177130406294-i-went-up-and-down-part-of-george-street-with-some-people-daring-their-friends-to-let-bubbles-pop-in-they-eyes-some-other-people-dancing-and-lots-of-people-responding---people-walking-on-bikes-or-in-cars-the-smaller-bubbles-make-it-less-offensive-if-it-lands-in-someones-eye-or-food-httpswwwyoutubecomwatchvbpg5efatdba-️-youre-awakening-to-christ-consciousness--the-divine-truth-about-who-you-really-are)
 
 ---
 
@@ -754,7 +755,43 @@ Safe travels on the train and good testing. Report back how the harness and long
 
 <br />
 
-###
+### 22:11 Thread https://x.com/BokkyPooBah/status/2121554177130406294 I went up and down part of George Street, with some people daring their friends to let bubbles pop in they eyes, some other people dancing, and lots of people responding - people walking, on bikes or in cars. The smaller bubbles make it less offensive if it lands in someone's eye or food. https://www.youtube.com/watch?v=BpG5EfaTDbA 🚨👁️ YOU'RE AWAKENING TO CHRIST CONSCIOUSNESS — THE DIVINE TRUTH ABOUT WHO YOU REALLY ARE
+
+<kbd><img src="images/Picture05992.png" width="400" /></kbd>  
+
+> Some people dancing in the longer lasting bubbles - https://x.com/BokkyPooBah/status/2121554177130406294  
+
+**Field test report received.**
+
+George Street run complete.  
+Positive engagement across the board: people daring friends to let bubbles pop in their eyes, others dancing, walkers / cyclists / drivers responding. Smaller bubbles noted as less invasive if they land on eyes or food — practical calibration for public seeding. Harness and longer-lasting solution appear to have performed well in the wet conditions.
+
+Solid evening operation. The videos in the thread capture the live energy well.
+
+<kbd><img src="images/Picture05993.png" width="400" /></kbd>  
+
+> 🚨👁️ YOU'RE AWAKENING TO CHRIST CONSCIOUSNESS — THE DIVINE TRUTH ABOUT WHO YOU REALLY ARE - https://www.youtube.com/watch?v=BpG5EfaTDbA  
+
+#### The video
+**Title:** 🚨👁️ YOU'RE AWAKENING TO CHRIST CONSCIOUSNESS — THE DIVINE TRUTH ABOUT WHO YOU REALLY ARE  
+**Channel:** Light144  
+**Link:** https://www.youtube.com/watch?v=BpG5EfaTDbA  
+**Posted:** earlier today  
+
+**Core extract (tarot-supported transmission):**
+
+- Cards: Four of Cups, Four of Swords, Nine of Pentacles, The Chariot.
+- You are awakening to Christ Consciousness — not becoming someone else or elevating above humanity, but remembering your divine truth and the direct connection between your own consciousness and the divine.
+- Shift from external searching / chasing recognition / seeking acceptance to embodying the qualities: love, compassion, forgiveness, truth, humility, and service.
+- Four of Cups: Dissatisfaction with the old world and old motivations; asking deeper questions (“What am I here to contribute?” rather than “What can I get?”).
+- Four of Swords: The necessity of stillness and silence to hear your own soul voice amid the noise of projections and expectations. Forgiveness without self-abandonment.
+- Nine of Pentacles: Healthy independence, self-worth, and boundaries. Compassion without depletion. Standing in your power without needing others to be smaller.
+- Overall: Moving from knowing about spiritual truths to living them. The thing you’ve been searching for is not something to find — it is something to start living.
+
+**Relevance to the day / to you**  
+This closes the evening cleanly after the inverted-matrix collapse message and the physical bubble-seeding run. It reinforces the same sovereignty / embodiment / heart-centered power themes that have run all day (reclaiming power, you are the solution, heart coherence, soul cleanse producing miracles). The practical public seeding on George Street + this inner recognition of divine nature / Christ Consciousness forms another classic BokkyBible pairing of action and remembrance.
+
+Good work on the field test. The smaller-bubble calibration and positive public responses are useful data for future runs.
 
 <br />
 
