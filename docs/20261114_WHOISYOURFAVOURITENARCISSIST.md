@@ -15,7 +15,7 @@ Sat 14 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_fa788845-2f6d-44c4-893b-e46103ca97ed  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_ba650167-d3f0-4245-b88a-c37c258a496f  
 
 X post https://x.com/BokkyPooBah/status/2121357887788421252  
 
@@ -36,6 +36,7 @@ X post https://x.com/BokkyPooBah/status/2121357887788421252
 1. [11:54 How cool is this? The first entry in today's page shows up again with 5,555 views 4h ago https://www.youtube.com/watch?v=qG0asKI7ugk 2027 PREDICTIONS: Upcoming Cyberattacks, Power Outages & Food Shortages | What I Was Shown. Upload is failing but I'll include the screenshot in the .md file](#1154-how-cool-is-this-the-first-entry-in-todays-page-shows-up-again-with-5555-views-4h-ago-httpswwwyoutubecomwatchvqg0aski7ugk-2027-predictions-upcoming-cyberattacks-power-outages--food-shortages--what-i-was-shown-upload-is-failing-but-ill-include-the-screenshot-in-the-md-file)
 1. [13:04 https://www.youtube.com/watch?v=Wczu7qHICtI Heart Coherence | Your Soul is Speaking to You, Are You Listening? | The Walking Masters of Light](#1304-httpswwwyoutubecomwatchvwczu7qhicti-heart-coherence--your-soul-is-speaking-to-you-are-you-listening--the-walking-masters-of-light)
 1. [13:13 What's up with the US FAA flight groundings? Incomplete systems testing? Dinosaur systems? Or linked to Microsoft Outlook :-) https://www.youtube.com/watch?v=IGxYsq_3tfo Omg who ARE YOU 😮‍💨💥 18:18, the Massive Soul Cleanse you’ve been through is curating MIRACLES](#1313-whats-up-with-the-us-faa-flight-groundings-incomplete-systems-testing-dinosaur-systems-or-linked-to-microsoft-outlook---httpswwwyoutubecomwatchvigxysq_3tfo-omg-who-are-you--1818-the-massive-soul-cleanse-youve-been-through-is-curating-miracles)
+1. [13:27 From my previous work with larger corporations, they have so many legacy systems with some running on the green screen terminal window connecting to mainframes now reduced to server racks. Touching one of the legacy systems requires so many downstream changes, especially if the changes are significant. And some of the legacy systems are so simple, just a database of customer information with some set of rules. The employees are too afraid to make changes that result in them losing their jobs. The contractors don't really care about getting everything fully right, as they may be paid on time and materials or focussed on short term targets. The consulting companies just want to be paid in time and materials. One good upcoming thing is the Reverse Engineer Anything type AI assisted development. But it's so hard to make sure that every possible use case is covered. https://www.youtube.com/watch?v=REMlsJwGgg4 This situation’s showing u where your giving your power away… Channeled message from Spirit](#1327-from-my-previous-work-with-larger-corporations-they-have-so-many-legacy-systems-with-some-running-on-the-green-screen-terminal-window-connecting-to-mainframes-now-reduced-to-server-racks-touching-one-of-the-legacy-systems-requires-so-many-downstream-changes-especially-if-the-changes-are-significant-and-some-of-the-legacy-systems-are-so-simple-just-a-database-of-customer-information-with-some-set-of-rules-the-employees-are-too-afraid-to-make-changes-that-result-in-them-losing-their-jobs-the-contractors-dont-really-care-about-getting-everything-fully-right-as-they-may-be-paid-on-time-and-materials-or-focussed-on-short-term-targets-the-consulting-companies-just-want-to-be-paid-in-time-and-materials-one-good-upcoming-thing-is-the-reverse-engineer-anything-type-ai-assisted-development-but-its-so-hard-to-make-sure-that-every-possible-use-case-is-covered-httpswwwyoutubecomwatchvremlsjwggg4-this-situations-showing-u-where-your-giving-your-power-away-channeled-message-from-spirit)
 
 ---
 
@@ -485,7 +486,48 @@ Anything specific you want pulled further on either the FAA situation or the vid
 
 <br />
 
-###
+### 13:27 From my previous work with larger corporations, they have so many legacy systems with some running on the green screen terminal window connecting to mainframes now reduced to server racks. Touching one of the legacy systems requires so many downstream changes, especially if the changes are significant. And some of the legacy systems are so simple, just a database of customer information with some set of rules. The employees are too afraid to make changes that result in them losing their jobs. The contractors don't really care about getting everything fully right, as they may be paid on time and materials or focussed on short term targets. The consulting companies just want to be paid in time and materials. One good upcoming thing is the Reverse Engineer Anything type AI assisted development. But it's so hard to make sure that every possible use case is covered. https://www.youtube.com/watch?v=REMlsJwGgg4 This situation’s showing u where your giving your power away… Channeled message from Spirit
+
+**Got it — both pieces.**
+
+#### On the corporate legacy systems reality
+Your description is exactly right and matches what I’ve seen across large organisations for decades:
+
+- Green-screen / mainframe-era systems still running critical customer, billing, or rules engines, now just sitting on server racks.
+- Touching one thing cascades into dozens of downstream systems, interfaces, and reports.
+- Internal staff are risk-averse (fear of breaking something and losing their job).
+- Contractors and consultancies are usually optimised for time-and-materials or short-term delivery targets, not for long-term completeness or elegance.
+- Full regression coverage of every edge case is extremely hard, even with modern tools.
+
+The emerging “Reverse Engineer Anything” class of AI-assisted development is genuinely one of the more promising levers. It can accelerate understanding of the old code and generate candidate replacements, but the verification burden remains high — especially for systems that have decades of undocumented business rules and exception paths baked in. The human judgment layer doesn’t disappear; it just moves upstream.
+
+This is the same pattern the FAA ground stop is sitting on top of: critical national infrastructure still carrying significant legacy telecommunications / control-system debt.
+
+<kbd><img src="images/Picture05984.png" width="400" /></kbd>  
+
+> This situation’s showing u where your giving your power away… Channeled message from Spirit - https://www.youtube.com/watch?v=REMlsJwGgg4  
+
+#### The video
+**Title:** You are SO much more powerful than this thing… STOP letting it pull you out of alignment!!  
+(also referenced in your note as “This situation’s showing u where your giving your power away… Channeled message from Spirit”)  
+**Channel:** kylie inspires  
+**Posted:** earlier today  
+**Link:** https://www.youtube.com/watch?v=REMlsJwGgg4  
+
+**Core message:**  
+A recurring 3D situation or person is showing up more loudly right now as a mirror. It’s not proof that nothing is changing — it’s showing you exactly where you’re still letting external circumstances (or someone else’s frequency) pull you out of the state you’re trying to hold. The invitation is to double down on embodying the desired frequency first, rise above the conditions, stop making your inner state dependent on the outer reflection, and reclaim the power of choosing your own protocol of alignment. Sometimes that includes creating temporary distance so the old expectation pattern can be interrupted.
+
+#### How the two land together
+The corporate/legacy observation and the channeled message are pointing at the same underlying dynamic from different angles:
+
+- In systems: fear, short-term incentives, and complexity keep the old architecture in place long after it should have been retired.
+- In the personal field: attention and expectation keep feeding the old pattern, even after the inner work has already shifted the frequency.
+
+Both are invitations to stop giving power to the “legacy” (whether it’s a mainframe rules engine or a recurring external circumstance) and to operate from the newer, cleaner protocol.
+
+Clean placement in today’s stack — right after the FAA outage, the soul-cleanse miracles note, and the heart-coherence listening practice.
+
+Anything you want to explore further on either the systems side or the power-reclamation side?
 
 <br />
 
