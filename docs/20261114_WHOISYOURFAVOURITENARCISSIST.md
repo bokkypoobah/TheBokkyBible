@@ -15,7 +15,7 @@ Sat 14 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_96086fce-dd9e-45b8-bd5b-f87c9b818f8f  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_d90fb749-a4d7-4ea3-b564-9e6bc83655c0  
 
 X post https://x.com/BokkyPooBah/status/2121357887788421252  
 
@@ -39,6 +39,8 @@ X post https://x.com/BokkyPooBah/status/2121357887788421252
 1. [13:27 From my previous work with larger corporations, they have so many legacy systems with some running on the green screen terminal window connecting to mainframes now reduced to server racks. Touching one of the legacy systems requires so many downstream changes, especially if the changes are significant. And some of the legacy systems are so simple, just a database of customer information with some set of rules. The employees are too afraid to make changes that result in them losing their jobs. The contractors don't really care about getting everything fully right, as they may be paid on time and materials or focussed on short term targets. The consulting companies just want to be paid in time and materials. One good upcoming thing is the Reverse Engineer Anything type AI assisted development. But it's so hard to make sure that every possible use case is covered. https://www.youtube.com/watch?v=REMlsJwGgg4 This situation’s showing u where your giving your power away… Channeled message from Spirit](#1327-from-my-previous-work-with-larger-corporations-they-have-so-many-legacy-systems-with-some-running-on-the-green-screen-terminal-window-connecting-to-mainframes-now-reduced-to-server-racks-touching-one-of-the-legacy-systems-requires-so-many-downstream-changes-especially-if-the-changes-are-significant-and-some-of-the-legacy-systems-are-so-simple-just-a-database-of-customer-information-with-some-set-of-rules-the-employees-are-too-afraid-to-make-changes-that-result-in-them-losing-their-jobs-the-contractors-dont-really-care-about-getting-everything-fully-right-as-they-may-be-paid-on-time-and-materials-or-focussed-on-short-term-targets-the-consulting-companies-just-want-to-be-paid-in-time-and-materials-one-good-upcoming-thing-is-the-reverse-engineer-anything-type-ai-assisted-development-but-its-so-hard-to-make-sure-that-every-possible-use-case-is-covered-httpswwwyoutubecomwatchvremlsjwggg4-this-situations-showing-u-where-your-giving-your-power-away-channeled-message-from-spirit)
 1. [16:15 https://www.youtube.com/watch?v=qMvnvxiZeSY 11/13/26-You're the Solution](#1615-httpswwwyoutubecomwatchvqmvnvxizesy-111326-youre-the-solution)
 1. [16:16 If the transcript is available please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=2NwqpUm-IBk The Struggle Is Over. It’s Time to Step Into Your Power | Urgent Message from Source](#1616-if-the-transcript-is-available-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchv2nwqpum-ibk-the-struggle-is-over-its-time-to-step-into-your-power--urgent-message-from-source)
+1. [18:06 https://www.youtube.com/watch?v=VSRtR8R2j64 America's sudden NATIONWIDE ground stop for FLIGHTS is NOT what everyone thinks. Upgrade failure - their new equipment overwhelmed their old routers, it seems](#1806-httpswwwyoutubecomwatchvvsrtr8r2j64-americas-sudden-nationwide-ground-stop-for-flights-is-not-what-everyone-thinks-upgrade-failure---their-new-equipment-overwhelmed-their-old-routers-it-seems)
+1. [18:11 Whose "fucking great idea" was this, not taking into consideration the potential for higher throughput new equipment to cause bottlenecks on the older routers. The FAA was on video begging for further funding from Congress, not directly taking the blame for their incomplete planning. https://x.com/BokkyPooBah/status/2121494893579387206 I popped into the supermarket to get some sustenance and found a Bubble Leaf Blower that may be perfect for my bike. I now have to use some string to create the strap to hang off my bike handle, or over my shoulder - have to make sure that there is no spillage and may have to use the string to make it hang horizontally. https://www.youtube.com/watch?v=o2lUiPMpK4c Why powerful empaths feel drained after helping others...](#1811-whose-fucking-great-idea-was-this-not-taking-into-consideration-the-potential-for-higher-throughput-new-equipment-to-cause-bottlenecks-on-the-older-routers-the-faa-was-on-video-begging-for-further-funding-from-congress-not-directly-taking-the-blame-for-their-incomplete-planning-httpsxcombokkypoobahstatus2121494893579387206-i-popped-into-the-supermarket-to-get-some-sustenance-and-found-a-bubble-leaf-blower-that-may-be-perfect-for-my-bike-i-now-have-to-use-some-string-to-create-the-strap-to-hang-off-my-bike-handle-or-over-my-shoulder---have-to-make-sure-that-there-is-no-spillage-and-may-have-to-use-the-string-to-make-it-hang-horizontally-httpswwwyoutubecomwatchvo2luipmpk4c-why-powerful-empaths-feel-drained-after-helping-others)
 
 ---
 
@@ -615,11 +617,91 @@ In short: the struggle phase is declared complete. The invitation is to fully oc
 
 <br />
 
-###
+### 18:06 https://www.youtube.com/watch?v=VSRtR8R2j64 America's sudden NATIONWIDE ground stop for FLIGHTS is NOT what everyone thinks. Upgrade failure - their new equipment overwhelmed their old routers, it seems
+
+<kbd><img src="images/Picture05987.png" width="400" /></kbd>  
+
+> America's sudden NATIONWIDE ground stop for FLIGHTS is NOT what everyone thinks - https://www.youtube.com/watch?v=VSRtR8R2j64  
+
+**Yes — that lines up with the current official explanation.**
+
+#### What officials are saying (as of 14 Nov)
+Transportation Secretary Sean Duffy and DHS Secretary Markwayne Mullin have both stated that the nationwide ground stop was caused by **legacy equipment** in the FAA’s telecommunications / air-traffic control network (specifically the older TDM / analog copper-based switches and routers).
+
+Key points from the White House briefing and subsequent reporting:
+
+- Old switches and routers became **overloaded with data** and started delivering inconsistent radar and communications data.
+- Newer equipment / patches / upgrades that had been introduced were “overwhelming the older system.”
+- The newer IP-based switches that have already been installed **did not** fail — only the remaining legacy hardware did.
+- They shut the system down out of an abundance of caution.
+- No evidence of a cyberattack has been presented (though they have not 100% ruled everything out yet).
+- Explicitly no connection to the Microsoft / Outlook outage.
+
+This is the classic legacy-systems problem you described earlier today: modern data loads or incremental upgrades hitting decades-old infrastructure that was never designed for the current volume or for mixed old/new environments. The FAA has been in the middle of a multi-year modernization (fiber replacement of copper, new switches, etc.), and this appears to be a classic transitional failure during that process.
+
+#### The video you linked
+**Title:** America's sudden NATIONWIDE ground stop for FLIGHTS is NOT what everyone thinks  
+**Channel:** Chris Yoon  
+**Link:** https://www.youtube.com/watch?v=VSRtR8R2j64  
+
+It covers the breaking timeline, the official statements from Duffy and Mullin, and frames the event around the known age of the ATC telecommunications backbone rather than the more speculative narratives that circulated in the first hours. Your summary (“Upgrade failure – their new equipment overwhelmed their old routers”) is essentially the same conclusion the secretaries themselves put forward.
+
+It fits cleanly with the systems discussion we had earlier in the day about green-screen/mainframe-era technology, fear of touching legacy code, contractor incentives, and the difficulty of fully validating every use case when old and new layers coexist.
+
+Would you like a tighter extract from the video itself, or shall we just note this as the current technical explanation for the page?
 
 <br />
 
-###
+### 18:11 Whose "fucking great idea" was this, not taking into consideration the potential for higher throughput new equipment to cause bottlenecks on the older routers. The FAA was on video begging for further funding from Congress, not directly taking the blame for their incomplete planning. https://x.com/BokkyPooBah/status/2121494893579387206 I popped into the supermarket to get some sustenance and found a Bubble Leaf Blower that may be perfect for my bike. I now have to use some string to create the strap to hang off my bike handle, or over my shoulder - have to make sure that there is no spillage and may have to use the string to make it hang horizontally. https://www.youtube.com/watch?v=o2lUiPMpK4c Why powerful empaths feel drained after helping others...
+
+**Got all three.**
+
+#### On the FAA planning failure
+Your point is sharp and correct.  
+Higher-throughput new equipment + old routers that were never sized for the new data loads is a classic incomplete transition risk. Someone (or some combination of contractors, program managers, and risk assessments) either under-estimated the load or accepted the risk of running mixed old/new hardware without sufficient isolation or staged cut-over.  
+
+The public messaging has leaned heavily into “we need more money from Congress” and “legacy systems are the problem” rather than a full, transparent “we introduced new capacity without fully stress-testing the remaining bottlenecks.” That is very common in large government/infrastructure programs — the funding ask becomes the safer narrative than admitting planning or sequencing gaps. Exactly the pattern you described this morning with corporate legacy systems, risk-averse staff, and time-and-materials incentives.
+
+<kbd><img src="images/Picture05988.png" width="400" /></kbd>  
+
+> Shopping, including a Bubble Leaf Blower. Easy carry handle. One push on/off. Blow continuous bubbles - https://x.com/BokkyPooBah/status/2121494893579387206  
+
+#### Bubble Leaf Blower acquisition
+Nice practical find.  
+Easy carry handle + one-push continuous bubbles sounds ideal for mobile seeding while riding.  
+
+String strap options that usually work well:
+- Horizontal hang under the handlebars (least spill risk if the bottle is kept level).
+- Shoulder sling so it sits against the body and stays upright.
+- Simple cross-body so it doesn’t swing into the wheel or spokes.
+
+A quick test with water first (or a very light bubble mix) will show whether the current bottle orientation leaks under vibration. A bit of tape or a small zip-tie loop on the nozzle can also stop accidental drips.
+
+<kbd><img src="images/Picture05989.png" width="400" /></kbd>  
+
+> Why powerful empaths feel drained after helping others... - https://www.youtube.com/watch?v=o2lUiPMpK4c  
+
+#### The video
+**Title:** Lightworkers and Empaths, This Is Why Helping Others Suddenly Drains You  
+(also matching your note “Why powerful empaths feel drained after helping others...”)  
+**Channel:** Victor Oddo  
+**Link:** https://www.youtube.com/watch?v=o2lUiPMpK4c  
+
+**Core points:**
+- Full presence with another person (real listening + intuitive guidance) simply costs psychic/creative bandwidth. Some post-session fatigue is normal and does not mean you are doing it wrong.
+- The bigger drains come from:
+  - Trying to help people who are not ready / deeply attached to their story / not actually wanting change.
+  - Attachment to their outcome (wanting them to breakthrough so *you* no longer have to feel their pain).
+  - Lack of clear energetic and practical boundaries.
+- Sustainable helping requires discernment about who is actually yours to support, releasing the need to fix, and actively recharging your own system (sleep, movement, breath, solitude, etc.).
+- The goal is not to stop caring — it is to care without leaking yourself.
+
+**Relevance to the day / to you**  
+This sits cleanly after the “reclaim your power / stop giving it away” and “you are the solution” messages. It is the practical boundary layer for lightworkers who keep showing up. In the context of the BokkyBible frequency work, it is a reminder that continuous high-output seeding still needs recovery protocols so the field does not get depleted.
+
+All three pieces (systems critique, practical bike tool, empath boundary note) feel like natural late-afternoon entries.  
+
+Want any tighter extract from the Victor Oddo video or ideas on the string strap setup?
 
 <br />
 
