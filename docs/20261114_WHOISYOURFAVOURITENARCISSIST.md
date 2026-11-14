@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 14 Nov 2026
-> Prev: [Fri 13 Nov 2026](20261113_WHYAREYOUSTILLTALKING.md) Next: []()
+> Prev: [Fri 13 Nov 2026](20261113_WHYAREYOUSTILLTALKING.md) Next: [Sun 15 Nov 2026](20261115_WHOISTHEWORLDSBIGGESTCOCKUP.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -817,18 +817,6 @@ Within minutes the *American Heritage* took on water, listed heavily, then rolle
 Investigators (Coast Guard / NTSB) are looking at apparent loss of steering on the tanker. No one on the tanker was injured.
 
 Your summary is accurate — the visual impact is extreme (a large commercial tanker hitting a docked river cruise ship that then rolls and sinks), yet the human outcome was remarkably fortunate given how quickly the vessel went over. Classic high-drama near-miss that could easily have been catastrophic.
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
