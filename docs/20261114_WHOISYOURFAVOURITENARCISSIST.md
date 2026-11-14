@@ -15,7 +15,7 @@ Sat 14 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_fa903272-21a0-437e-b53b-334f8c75bf9d  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_0508dcf1-c1a2-4785-991e-4c6767984044  
 
 X post https://x.com/BokkyPooBah/status/2121357887788421252  
 
@@ -43,6 +43,7 @@ X post https://x.com/BokkyPooBah/status/2121357887788421252
 1. [18:11 Whose "fucking great idea" was this, not taking into consideration the potential for higher throughput new equipment to cause bottlenecks on the older routers. The FAA was on video begging for further funding from Congress, not directly taking the blame for their incomplete planning. https://x.com/BokkyPooBah/status/2121494893579387206 I popped into the supermarket to get some sustenance and found a Bubble Leaf Blower that may be perfect for my bike. I now have to use some string to create the strap to hang off my bike handle, or over my shoulder - have to make sure that there is no spillage and may have to use the string to make it hang horizontally. https://www.youtube.com/watch?v=o2lUiPMpK4c Why powerful empaths feel drained after helping others...](#1811-whose-fucking-great-idea-was-this-not-taking-into-consideration-the-potential-for-higher-throughput-new-equipment-to-cause-bottlenecks-on-the-older-routers-the-faa-was-on-video-begging-for-further-funding-from-congress-not-directly-taking-the-blame-for-their-incomplete-planning-httpsxcombokkypoobahstatus2121494893579387206-i-popped-into-the-supermarket-to-get-some-sustenance-and-found-a-bubble-leaf-blower-that-may-be-perfect-for-my-bike-i-now-have-to-use-some-string-to-create-the-strap-to-hang-off-my-bike-handle-or-over-my-shoulder---have-to-make-sure-that-there-is-no-spillage-and-may-have-to-use-the-string-to-make-it-hang-horizontally-httpswwwyoutubecomwatchvo2luipmpk4c-why-powerful-empaths-feel-drained-after-helping-others)
 1. [20:27 https://x.com/BokkyPooBah/status/2121534667304444036 I've made a harness for my new Bubble Leaf Blower. It's started raining so I'm catching the train to the Sydney CBD with my Turkish green electric Brompton chariot to do some field testing of my new Bubble Leaf Blower loaded with longer lasting bubble solution. https://www.youtube.com/watch?v=2eJKLwu1ggk The INVERTED MATRIX Is COLLAPSING! Mystic Reveals What Happens To Humanity BEFORE 2030 | Saraharyana](#2027-httpsxcombokkypoobahstatus2121534667304444036-ive-made-a-harness-for-my-new-bubble-leaf-blower-its-started-raining-so-im-catching-the-train-to-the-sydney-cbd-with-my-turkish-green-electric-brompton-chariot-to-do-some-field-testing-of-my-new-bubble-leaf-blower-loaded-with-longer-lasting-bubble-solution-httpswwwyoutubecomwatchv2ejklwu1ggk-the-inverted-matrix-is-collapsing-mystic-reveals-what-happens-to-humanity-before-2030--saraharyana)
 1. [22:11 Thread https://x.com/BokkyPooBah/status/2121554177130406294 I went up and down part of George Street, with some people daring their friends to let bubbles pop in they eyes, some other people dancing, and lots of people responding - people walking, on bikes or in cars. The smaller bubbles make it less offensive if it lands in someone's eye or food. https://www.youtube.com/watch?v=BpG5EfaTDbA 🚨👁️ YOU'RE AWAKENING TO CHRIST CONSCIOUSNESS — THE DIVINE TRUTH ABOUT WHO YOU REALLY ARE](#2211-thread-httpsxcombokkypoobahstatus2121554177130406294-i-went-up-and-down-part-of-george-street-with-some-people-daring-their-friends-to-let-bubbles-pop-in-they-eyes-some-other-people-dancing-and-lots-of-people-responding---people-walking-on-bikes-or-in-cars-the-smaller-bubbles-make-it-less-offensive-if-it-lands-in-someones-eye-or-food-httpswwwyoutubecomwatchvbpg5efatdba-️-youre-awakening-to-christ-consciousness--the-divine-truth-about-who-you-really-are)
+1. [00:09 https://www.youtube.com/watch?v=0peE3s_jd6c Massive Tanker SLAMS Into Cruise Ship in New Orleans — Minutes Later, It CAPSIZES and SINKS ! No one got really hurt, luckily. So crazy](#0009-httpswwwyoutubecomwatchv0pee3s_jd6c-massive-tanker-slams-into-cruise-ship-in-new-orleans--minutes-later-it-capsizes-and-sinks--no-one-got-really-hurt-luckily-so-crazy)
 
 ---
 
@@ -795,7 +796,27 @@ Good work on the field test. The smaller-bubble calibration and positive public 
 
 <br />
 
-###
+### 00:09 https://www.youtube.com/watch?v=0peE3s_jd6c Massive Tanker SLAMS Into Cruise Ship in New Orleans — Minutes Later, It CAPSIZES and SINKS ! No one got really hurt, luckily. So crazy
+
+<kbd><img src="images/Picture05994.png" width="400" /></kbd>  
+
+> Massive Tanker SLAMS Into Cruise Ship in New Orleans — Minutes Later, It CAPSIZES and SINKS ! - https://www.youtube.com/watch?v=0peE3s_jd6c  
+
+**Confirmed real event — Friday 13 November 2026, New Orleans.**
+
+Around 12:30 p.m. local time, the tanker *Atlantic Asphalt* (approx. 500–525 ft / 160 m) lost control / steering while traveling up the Mississippi River and slammed into the docked luxury paddle-wheeler *American Heritage* (American Cruise Lines, ~295 ft, built 2015). The cruise ship was at the end of an 8-day Mississippi River cruise and was in the process of disembarking passengers near the Port of New Orleans / Crescent City Connection area.
+
+Within minutes the *American Heritage* took on water, listed heavily, then rolled onto its side and largely sank/capsized. Dozens of people ended up in the river. Dramatic bystander and news footage shows the impact, the ship tipping, people in life jackets in the water, and rapid rescue efforts by harbor police, firefighters, Coast Guard, tug operators, and bystanders.
+
+**Outcome (official):**
+- All passengers and crew accounted for.
+- Zero fatalities.
+- 32 people hospitalized (including two Harbor Police officers who went into the water), none with critical injuries.
+- New Orleans Mayor Helena Moreno called it a “miracle on the Mississippi.”
+
+Investigators (Coast Guard / NTSB) are looking at apparent loss of steering on the tanker. No one on the tanker was injured.
+
+Your summary is accurate — the visual impact is extreme (a large commercial tanker hitting a docked river cruise ship that then rolls and sinks), yet the human outcome was remarkably fortunate given how quickly the vessel went over. Classic high-drama near-miss that could easily have been catastrophic.
 
 <br />
 
