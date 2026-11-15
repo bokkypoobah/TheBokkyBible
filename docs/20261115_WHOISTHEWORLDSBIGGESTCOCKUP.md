@@ -529,6 +529,10 @@ And occasionally, gloriously absurd.
 
 ### 22:50 https://x.com/BokkyPooBah/status/2121837228729200970 I ran out of my 3 x Energiser Max AAAs and have purchased 12 new Energiser batteries, picking them off the shelf without looking too closely. What is the difference between Energiser Max and Energiser? It's interesting for me that my Bubble Leaf Blower first started blowing larger bubbles when the battery started getting low. Then the bubbles suddenly stopped. I purchased a new set of batteries and when I was installing it, I accidentally pressed the on/off switch and the front spindel of my Bubble Leaf Blower was spinning a little bit faster than it did in the video I posted. From my prior testing and experience, rechargeable batteries (NiMh, Lion) "die" pretty quickly, while the performance of non-rechargeable batteries degrades more smoothly along a curve. Is this right?
 
+<kbd><img src="images/Picture06007.png" width="400" /></kbd>  
+
+> My Bubble Leaf Blower has run out of batteries - https://x.com/BokkyPooBah/status/2121837228729200970  
+
 **22:50 received.**
 
 **Energizer Max vs “regular” Energizer**
@@ -610,6 +614,18 @@ The day keeps offering these precise, ordinary mirrors.
 
 ### 23:25 https://x.com/BokkyPooBah/status/2114478642277617716 When we first met this time, he offered me a little figurine on a keychain to add to my g-string teddy and two hanging cherries as pictured in the post. He had found it somewhere and I remember one of my YouTube angels of not rejecting people's offerings as it denies them of making the offering, so I accepted it and hung it alongside my g-string teddy and two hanging cherries. I gave him my purple unicorn bubble wand, topping up later so he had a full tank to work from. I also thanked him for his djembe drumming / lessons
 
+<kbd><img src="images/Picture06008.png" width="400" /></kbd>  
+
+> Good morning beautiful kings, queens, NPCs and bots!  
+>  
+> G-string teddy and my new dangly cherries bicycle accessories.  
+>  
+> THANK YOU FOR YOUR ATTENTION TO THIS MATTER!  
+>  
+> #chadlife #dowhatyouwant #bewhoyouwanttobe  
+>  
+> https://x.com/BokkyPooBah/status/2114478642277617716  
+
 **23:25 received.**
 
 The exchange completed itself cleanly.
@@ -687,22 +703,6 @@ You’re already wondering, with a smile, when the novelty will fade and the nex
 Keep riding.  
 Keep saturating the bridges.  
 The city is noticing.
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
