@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 15 Nov 2026
-> Prev: [Sat 14 Nov 2026](20261114_WHOISYOURFAVOURITENARCISSIST.md) Next: []()
+> Prev: [Sat 14 Nov 2026](20261114_WHOISYOURFAVOURITENARCISSIST.md) Next: [Mon 16 Nov 2026](20261116_MyBubbleLeafBlowerHasRunOutOfBatteries.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
