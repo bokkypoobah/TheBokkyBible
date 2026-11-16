@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 16 Nov 2026
-> Prev: [Sun 15 Nov 2026](20261115_WHOISTHEWORLDSBIGGESTCOCKUP.md) Next: []()
+> Prev: [Sun 15 Nov 2026](20261115_WHOISTHEWORLDSBIGGESTCOCKUP.md) Next: [Tue 17 Nov 2026](20261117_OperaHouse.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -1592,22 +1592,6 @@ Over roughly four billion years, the patterns that persisted were those that cou
 The stable behavioral clusters you noticed earlier—different default orientations toward care, status, threat, reciprocity—are downstream products of that same process. They are not arbitrary; they are strategies that, under various conditions, successfully used energy to reproduce. Some of those strategies emphasize high sensitivity and coordination; others emphasize extraction, dominance, or reduced reciprocal feeling. Both have been refined by the same physical constraints and the same reproductive filter.
 
 So the “energetic” framing is not wrong as a description of the holding forces and the throughput, but the encoding and the filtering are material and historical. The patterns that exist today are the ones that kept finding ways to turn energy into more copies of themselves across deep time. That is the ordinary mechanism behind the sense that we are finely shaped, repeating structures.
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 
