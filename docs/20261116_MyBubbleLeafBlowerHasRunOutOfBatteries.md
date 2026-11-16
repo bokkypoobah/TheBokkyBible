@@ -15,7 +15,7 @@ Mon 16 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_f79896c8-1800-46e0-bf57-953dbe66c9cb  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_87ce17f5-9816-4e1e-8748-af887234ddc7  
 
 X post https://x.com/BokkyPooBah/status/2122069888181411923  
 
@@ -42,6 +42,7 @@ X post https://x.com/BokkyPooBah/status/2122069888181411923
 1. [19:24 Re the 2nd "Thomas Markle Jr REVEALS Meghan PAID Him To Plant Evidence In Mexico Storage Unit!" video above, I did search "did Thomas Markle Jr plant evidence?" but did not get anything coherent. FYI, my next search was "can accoustics be use to propel soap bubbles to a higher velocity?", followed by "thomas markle's first wife" to confirm that I heard the name Loveless. I can't post the images as my uploads fail](#1924-re-the-2nd-thomas-markle-jr-reveals-meghan-paid-him-to-plant-evidence-in-mexico-storage-unit-video-above-i-did-search-did-thomas-markle-jr-plant-evidence-but-did-not-get-anything-coherent-fyi-my-next-search-was-can-accoustics-be-use-to-propel-soap-bubbles-to-a-higher-velocity-followed-by-thomas-markles-first-wife-to-confirm-that-i-heard-the-name-loveless-i-cant-post-the-images-as-my-uploads-fail)
 1. [19:30 I also researched using air to propel bubbles a bit further and Brave AI first suggested a 10m tube, and upon being asked "Can a shorter device be made?" responded that a 10-15cm device can be made. What do you think Grok?](#1930-i-also-researched-using-air-to-propel-bubbles-a-bit-further-and-brave-ai-first-suggested-a-10m-tube-and-upon-being-asked-can-a-shorter-device-be-made-responded-that-a-10-15cm-device-can-be-made-what-do-you-think-grok)
 1. [20:01 Please sketch out a simple short nozzle or Coanda attachment](#2001-please-sketch-out-a-simple-short-nozzle-or-coanda-attachment)
+1. [20:09 https://www.youtube.com/watch?v=k1n-EFPW70o Thieves posing as tradies steal $3 million Melbourne Cup trophies | 9 News Australia. So funny, wanting to steal something that is so unique that it will be so traceable. Did they steal this for the gold contents?](#2009-httpswwwyoutubecomwatchvk1n-efpw70o-thieves-posing-as-tradies-steal-3-million-melbourne-cup-trophies--9-news-australia-so-funny-wanting-to-steal-something-that-is-so-unique-that-it-will-be-so-traceable-did-they-steal-this-for-the-gold-contents)
 
 ---
 
@@ -868,7 +869,23 @@ Field remains open.
 
 <br />
 
-###
+### 20:09 https://www.youtube.com/watch?v=k1n-EFPW70o Thieves posing as tradies steal $3 million Melbourne Cup trophies | 9 News Australia. So funny, wanting to steal something that is so unique that it will be so traceable. Did they steal this for the gold contents?
+
+**20:09 field note.**
+
+Yes — the comedy (and the stupidity) is exactly in the uniqueness.
+
+Three Melbourne Cups won by Makybe Diva (the only horse ever to win three, consecutive years 2003–2005) are about as traceable as objects get in Australia. They are solid 18-carat gold, each roughly 1.6–2 kg, each currently valued around $1 million, total headline figure ~$3 million. They were on public display at Flemington as part of a dedicated exhibition. Any attempt to sell them intact would be almost immediately noticed. The only practical criminal end-use is melting them down for the gold content.[](<https://www.nine.com.au/australia-news/vic/makybe-diva-melbourne-cup-trophies-stolen-flemington-racecourse-20261116-p61ekz.html>)
+
+That is precisely what owner Tony Santic has already flagged as his biggest fear: that the trophies will be destroyed for scrap rather than returned.[](<https://www.racing.com/news/2026/11/16/news-owners-tony-santic-shares-stolen-cup-heartbreak>)
+
+The reported method (people in hi-vis / posing as tradies, early morning, smashed display cabinet in the Hill Stand) is brazen but not sophisticated. It is the classic “get in, grab the shiny thing, get out” approach that works better on anonymous jewellery or cash than on three of the most famous pieces of Australian sporting silverware/goldware in existence.
+
+So the rational calculation, if there is one, has to be melt value. Intact, their uniqueness is a liability. Reduced to gold, the uniqueness disappears and the metal becomes fungible. Whether the thieves actually calculated that, or simply saw “big gold trophies worth millions” and acted, is the open question. Either way, the odds of them remaining intact and being recovered without damage are not high.
+
+It sits neatly in the day’s larger pattern of high-visibility, low-stability actions — systems and people reaching for something that looks valuable while ignoring (or underestimating) how quickly the uniqueness makes it radioactive.
+
+Field remains open.
 
 <br />
 
