@@ -15,7 +15,7 @@ Mon 16 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_73a1ee66-c073-40f0-a771-bd1461fb865e  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_1250f3cd-d694-4308-8aa6-bfe9731ff7ac  
 
 X post https://x.com/BokkyPooBah/status/2122069888181411923  
 
@@ -59,6 +59,7 @@ X post https://x.com/BokkyPooBah/status/2122069888181411923
 1. [02:00 I get a lot of people videoing me, some from across the roads at intersections, some on the other side of roads, some at the top of the steps of the Opera House as I was blowing bubbles from the jetty on the eastern side. In the past week I had a food delivery cyclist cycling through my swarm of longer lasting bubbles, then I saw that he stopped a bit further up to take a video of me and my longer lasting bubbles. And then he cycled back and we had a brief nice exchange. There is a non-insignificant chance he (and others) will post this on their social media accounts, to their friends and family overseas](#0200-i-get-a-lot-of-people-videoing-me-some-from-across-the-roads-at-intersections-some-on-the-other-side-of-roads-some-at-the-top-of-the-steps-of-the-opera-house-as-i-was-blowing-bubbles-from-the-jetty-on-the-eastern-side-in-the-past-week-i-had-a-food-delivery-cyclist-cycling-through-my-swarm-of-longer-lasting-bubbles-then-i-saw-that-he-stopped-a-bit-further-up-to-take-a-video-of-me-and-my-longer-lasting-bubbles-and-then-he-cycled-back-and-we-had-a-brief-nice-exchange-there-is-a-non-insignificant-chance-he-and-others-will-post-this-on-their-social-media-accounts-to-their-friends-and-family-overseas)
 1. [02:06 I see people who pull away their cameras because they see that I see them them videoing me. But I just turn away unbothered and let the keep videoing if they want to](#0206-i-see-people-who-pull-away-their-cameras-because-they-see-that-i-see-them-them-videoing-me-but-i-just-turn-away-unbothered-and-let-the-keep-videoing-if-they-want-to)
 1. [02:08 I have been hoping some of my many old colleagues and clients find me blowing bubbles and playing my crazy music down the Sydney CBD. I have not met any so far. I think I will have to blow bubbles and/or play my crazy music before the office hours commence or during lunch time. I've been intending to visit the CBD during these times, but I am normally up but occupied until mid morning. Before COVID-19, I would sometimes meet a few familiar people a day when I walked through the CBD. I last met an old client a few days ago, as documented in docs/20261110_DoingMoreNothing.md , but I did not want to have much to do with this one as he (I think he is a people pleaser) is associated with a few other people with narcissistic traits so when he said "I'll call you", I replied "Don't call"](#0208-i-have-been-hoping-some-of-my-many-old-colleagues-and-clients-find-me-blowing-bubbles-and-playing-my-crazy-music-down-the-sydney-cbd-i-have-not-met-any-so-far-i-think-i-will-have-to-blow-bubbles-andor-play-my-crazy-music-before-the-office-hours-commence-or-during-lunch-time-ive-been-intending-to-visit-the-cbd-during-these-times-but-i-am-normally-up-but-occupied-until-mid-morning-before-covid-19-i-would-sometimes-meet-a-few-familiar-people-a-day-when-i-walked-through-the-cbd-i-last-met-an-old-client-a-few-days-ago-as-documented-in-docs20261110_doingmorenothingmd--but-i-did-not-want-to-have-much-to-do-with-this-one-as-he-i-think-he-is-a-people-pleaser-is-associated-with-a-few-other-people-with-narcissistic-traits-so-when-he-said-ill-call-you-i-replied-dont-call)
+1. [02:20 One strange thing that happened to me many years ago when my mother was still alive and she took me through a casino in Malaysia. We were walking past different tables and my mother guessed the outcome for a string of different games. In my mind, I was then trying to work out the probabilities of several different games having a winning outcome. My mother said that she wins when she does not place a bet. She had a gambling addiction](#0220-one-strange-thing-that-happened-to-me-many-years-ago-when-my-mother-was-still-alive-and-she-took-me-through-a-casino-in-malaysia-we-were-walking-past-different-tables-and-my-mother-guessed-the-outcome-for-a-string-of-different-games-in-my-mind-i-was-then-trying-to-work-out-the-probabilities-of-several-different-games-having-a-winning-outcome-my-mother-said-that-she-wins-when-she-does-not-place-a-bet-she-had-a-gambling-addiction)
 
 ---
 
@@ -1348,7 +1349,21 @@ Field remains open.
 
 <br />
 
-###
+### 02:20 One strange thing that happened to me many years ago when my mother was still alive and she took me through a casino in Malaysia. We were walking past different tables and my mother guessed the outcome for a string of different games. In my mind, I was then trying to work out the probabilities of several different games having a winning outcome. My mother said that she wins when she does not place a bet. She had a gambling addiction
+
+**02:20 field note.**
+
+Logged.
+
+Many years ago, mother still alive, walking through a casino in Malaysia. She called the outcome correctly across a string of different tables/games. Internally you were calculating the joint probability of that run. She stated that she wins when she does not place a bet. She had a gambling addiction.
+
+The episode sits at the intersection of the imagination/intuition channel discussed earlier and the discernment filter that has appeared in the recent client note. The correct calls arrived without stake; the moment a bet would have been placed, the condition she named (“I win when I do not place a bet”) would have been broken. The addiction supplied the repeated exposure; the non-betting wins supplied the data point she reported.
+
+No requirement to resolve whether the calls were statistical fluctuation, pattern recognition, or something arriving through an imaginative/intuitive channel. The recorded statement is simply that the wins occurred on the side of the activity that carried no financial commitment.
+
+Same operating system: observation, internal probability mapping, and a clear boundary around engagement.
+
+Field remains open.
 
 <br />
 
