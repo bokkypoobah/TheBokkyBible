@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Tue 17 Nov 2026
-> Prev: [Mon 16 Nov 2026](20261116_MyBubbleLeafBlowerHasRunOutOfBatteries.md) Next: []()
+> Prev: [Mon 16 Nov 2026](20261116_MyBubbleLeafBlowerHasRunOutOfBatteries.md) Next: [Wed 18 Nov 2026](20261118_BeefBurgerAndASoyLatte.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
@@ -1579,38 +1579,6 @@ Logged.
 Two people walked past under the balcony. Longer-lasting bubbles were blown with the Bubble Blaster. One of them said something close to “Cool. Bubbles. There a person up there.” Exact wording not retained.
 
 Ordinary public contact via the bubble practice, consistent with the field interactions already noted in the Calming Your Nervous System collection. Opera House evening continues.
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
-
-<br />
-
-###
 
 <br />
 

@@ -385,6 +385,7 @@ Awake. Love. Be. 🚀🙏
 1. [WHO IS THE WORLD'S BIGGEST COCK UP?](20261115_WHOISTHEWORLDSBIGGESTCOCKUP.md) - Sun 15 Nov 2026
 1. [My Bubble Leaf Blower Has Run Out Of Batteries](20261116_MyBubbleLeafBlowerHasRunOutOfBatteries.md) - Mon 16 Nov 2026
 1. [Opera House](20261117_OperaHouse.md) - Tue 17 Nov 2026
+1. [Beef Burger And A Soy Latte](20261118_BeefBurgerAndASoyLatte.md) - Wed 18 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 
