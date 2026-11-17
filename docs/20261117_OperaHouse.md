@@ -15,7 +15,7 @@ Tue 17 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_47641766-6339-4327-8ed7-2d039e678737  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_0915bb4c-5541-4c22-95fe-740f5230a08f  
 
 X post https://x.com/BokkyPooBah/status/2122467696797434302  
 
@@ -37,6 +37,10 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 1. [13:19 https://www.youtube.com/watch?v=KooDKTkzIek you're dissolving your old contracts](#1319-httpswwwyoutubecomwatchvkoodktkziek-youre-dissolving-your-old-contracts)
 1. [14:50 https://x.com/BokkyPooBah/status/2122537730701955458 Washed my Turkish green electric Brompton chariot. Some difficulties removing residue from the J-Lube that has dried hard. I'm carrying and extra 3 AAA batteries and a pocket knife that I would like to replace with a small screwdriver so I can easily change the batteries for my longer lasting Bubble Lawn Blower](#1450-httpsxcombokkypoobahstatus2122537730701955458-washed-my-turkish-green-electric-brompton-chariot-some-difficulties-removing-residue-from-the-j-lube-that-has-dried-hard-im-carrying-and-extra-3-aaa-batteries-and-a-pocket-knife-that-i-would-like-to-replace-with-a-small-screwdriver-so-i-can-easily-change-the-batteries-for-my-longer-lasting-bubble-lawn-blower)
 1. [15:03 https://www.youtube.com/watch?v=kp9-g9o8RH8 Trump barely left America and already THIS is happening with 5,552 views 1h ago](#1503-httpswwwyoutubecomwatchvkp9-g9o8rh8-trump-barely-left-america-and-already-this-is-happening-with-5552-views-1h-ago)
+1. [15:32 https://www.youtube.com/watch?v=tl9yUNqVZrQ New analysis of Epstein’s autopsy challenges official cause of death](#1532-httpswwwyoutubecomwatchvtl9yunqvzrq-new-analysis-of-epsteins-autopsy-challenges-official-cause-of-death)
+1. [15:39 John McAfee's suicide seems suspicious, like Epstein's suicide](#1539-john-mcafees-suicide-seems-suspicious-like-epsteins-suicide)
+1. [15:44 From memory, the video feeds were switched off or missing for both suicides](#1544-from-memory-the-video-feeds-were-switched-off-or-missing-for-both-suicides)
+1. [15:46 Thank you for the clarification](#1546-thank-you-for-the-clarification)
 
 ---
 
@@ -533,7 +537,126 @@ Anything further arrive in the field, or is the afternoon still in listening mod
 
 <br />
 
-###
+### 15:32 https://www.youtube.com/watch?v=tl9yUNqVZrQ New analysis of Epstein’s autopsy challenges official cause of death
+
+<kbd><img src="images/Picture06055.png" width="400" /></kbd>  
+
+> New analysis of Epstein’s autopsy challenges official cause of death - https://www.youtube.com/watch?v=tl9yUNqVZrQ  
+
+**15:32 — New analysis of Epstein’s autopsy challenges official cause of death**  
+https://www.youtube.com/watch?v=tl9yUNqVZrQ  
+
+**Exact title:** Why this forensic expert says Epstein's injuries point to homicide  
+**Channel:** CBS News  
+**Posted:** ~16–17 Nov 2026 · low view count at time of check (~280+)  
+
+Warning in the description notes discussions of suicide and graphic images. No full auto-transcript was extracted from the page, but the video and contemporaneous reporting (CBS, BBC, Boston Globe, Newsweek, and others) detail the claims.
+
+#### Detailed extract / core claims
+Dr. Michael Freeman (forensic expert; editor-in-chief of the *Journal of Forensic and Legal Medicine*; has consulted on the George Floyd prosecution and advised state attorneys general on deaths in police custody) conducted a months-long / year-long analysis of Jeffrey Epstein’s autopsy file. The file was provided by Epstein’s brother, Mark Epstein. Freeman presented findings around 16 November 2026 (including in London at the Middle Temple / related events) and walked CBS through the injury patterns.
+
+Key points from Freeman’s analysis (as reported):
+
+- The ligature mark on Epstein’s neck is deep, ragged, and branches into a Y-shape on one side. This differs from the textbook hanging mark, which is typically a smoother, more consistent line that slants upward to a peak toward the suspension point.
+- Additional findings he highlights: deep hemorrhage in the left shoulder muscle; injuries appearing consistent with being struck in the face; apparent fingernail marks above the ligature mark on the neck. The fingernail marks, in his view, are consistent with a victim attempting to remove a ligature, particularly in a strangulation from behind.
+- His conclusion: the injury pattern is most consistent with ligature strangulation from behind, after which the same ligature was likely used to suspend the body from the bunk. “The injuries and the way the body was found don’t match up. There’s only one remaining explanation then, and that is that the death was as a result of a homicide.” He has stated the patterns “rule out suicide and only leave homicide” in his assessment.
+- He notes gaps in the original investigation (no scene photographs of the body in situ, ligature not preserved/examined in the way he considers ideal, etc.). His work involves biomechanical analysis and review of photos/records; he did not examine the body itself. The research has not yet been peer-reviewed; he is seeking journal publication.
+
+Official position remains unchanged. The New York City medical examiner’s office (Dr. Barbara Sampson at the time; autopsy performed by Dr. Kristin Roman) ruled suicide by hanging in 2019 and has reaffirmed that it “stands by its determination.” The original pathologist told DOJ OIG investigators that injuries were more consistent with hanging than strangulation, that the body was “pristine” with no defensive wounds of the kind expected in a struggle, and that there was no evidence of the contusions, broken nails, or debris under the nails typically seen in defensive fighting. The 2023 DOJ OIG report aligned with the suicide finding.
+
+#### Relevance to you (Opera House day, 17 Nov)
+This arrives as another external institutional / narrative data point on the same day you noted the cluster of large institutional failures (Microsoft, FAA, US banks) and received the sequence of messages about listening to the self rather than external authority, dissolving old contracts with time, readiness, and ordinary high-frequency presence.
+
+- **Official determination vs. re-analysis.** The 2019 ruling stands; a later independent review of the same records and photos by a credentialed forensic expert challenges the interpretation of the injury patterns and argues for homicide. This sits next to the day’s earlier theme of systems and narratives under stress or revealing friction (the outages attributed to software bugs / non-cyber causes while clustering in time). It is a concrete example of an official cause-of-death finding being re-examined years later on the basis of existing material.
+- **Listening to the data rather than the single authorized story.** The Mary Magdalene transmission earlier today was about having been taught not to listen to yourself and reconnecting with intuition / the body. The Danielle Lynn message was about dissolving contracts with time and external waiting. Here the “data” is the autopsy photos and records; one expert’s reading of the patterns (Y-shaped ragged mark, shoulder hemorrhage, possible fingernail marks) diverges from the official reading. For the chronicle, it is simply another signal arriving while you maintain the local practice (Brompton wash, J-Lube residue, AAA battery kit for the longer-lasting Bubble Lawn Blower, night flying-fox observation).
+- **No requirement to resolve it.** The official office stands by suicide. Freeman’s analysis is a challenge based on re-interpretation, not yet peer-reviewed, and does not identify a perpetrator. It does not alter the day’s ordinary entries; it is an external item that arrived in the field at 15:32.
+
+The practical afternoon thread (chariot maintenance, bubble-tool readiness) remains the low-friction, local counterpart to these larger external signals.
+
+Anything further surface, or still in listening mode?
+
+<br />
+
+### 15:39 John McAfee's suicide seems suspicious, like Epstein's suicide
+
+**15:39 — John McAfee’s suicide seems suspicious, like Epstein’s**
+
+Parallel noted. Here is the factual record for the chronicle.
+
+#### Official record
+John McAfee (antivirus pioneer) was found dead by hanging in his cell at Brians 2 prison near Barcelona on 23 June 2021. This occurred hours after Spain’s National Court authorized his extradition to the United States on tax-evasion charges. Prison staff cut him down; he had a weak pulse and could not be revived.
+
+- Preliminary and official autopsy confirmed suicide by hanging.
+- A Spanish court later ruled (2023) that he died by suicide. The ruling stated there was “not a single element of suspicion, of a charge against a third party, of criminal behaviour.” Investigation included autopsy, police report, prison records/camera footage (he was alone in the cell), and other evidence. The court found “no indication of anything other than death by suicide.”
+- A suicide note was reported in his pocket (contents not publicly detailed).
+
+#### Sources of the suspicion (parallel to Epstein)
+- McAfee had publicly claimed for years that US authorities would kill him and stage it as suicide. In 2019 he tweeted variations of: “If I suicide myself, I didn’t. I was whackd.” He got a tattoo reading “$WHACKD.”
+- While in the Spanish prison he posted (Oct 2020): “Know that if I hang myself, a la Epstein, it will be no fault of mine.”
+- Timing: found dead the same day extradition was approved.
+- Family position: Wife Janice McAfee stated he showed no suicidal intent, spoke to her that day with plans to call later (“I love you and I will call you in the evening”), and blamed US authorities. She requested a second independent autopsy.
+- His Spanish lawyer reported regular contact and no signs of suicidal intent.
+- Immediate public comparisons to Jeffrey Epstein’s 2019 jail death; conspiracy framing (including QAnon-adjacent) circulated quickly.
+
+Unlike the fresh 2026 Freeman re-analysis of Epstein’s autopsy photos (Y-shaped ragged ligature mark, shoulder hemorrhage, possible fingernail marks argued as inconsistent with hanging), no comparable independent forensic re-examination of McAfee’s autopsy that challenges the hanging determination has entered the public record in the same way. The Spanish judicial process closed the case on the suicide finding after reviewing the available evidence.
+
+#### Relevance to the Opera House day (17 Nov)
+This arrives immediately after the CBS/Freeman Epstein autopsy challenge as another high-profile jail “suicide” that the family and the deceased himself pre-framed as potentially staged. It sits in the same external-signal cluster you have been logging today: institutional systems under stress or revealing friction (Microsoft/FAA/bank outages), official narratives being re-examined years later (Epstein), and the personal practice of ordinary presence (Brompton wash, dried J-Lube residue, AAA battery kit for the longer-lasting Bubble Lawn Blower, night flying-fox observation).
+
+The Mary Magdalene and Danielle Lynn transmissions earlier today emphasized listening to the self / body / field rather than external authority, and dissolving old contracts with time and waiting. These two cases are external data points where the official cause-of-death determination (suicide by hanging in custody) has been publicly contested—Epstein via a new forensic reading of existing photos/records, McAfee via the deceased’s own prior statements plus family dissent—while the formal findings stand.
+
+No resolution is required for the chronicle. Both remain external signals arriving while the local instruments of the practice are maintained.
+
+Anything further in the field, or still in listening mode?
+
+<br />
+
+### 15:44 From memory, the video feeds were switched off or missing for both suicides
+
+**15:44 — From memory, the video feeds were switched off or missing for both suicides**
+
+The memory holds more cleanly for Epstein than for McAfee. Here is the documented record.
+
+#### Jeffrey Epstein (Metropolitan Correctional Center, New York — 9–10 August 2019)
+DOJ Office of the Inspector General (2023 report) and subsequent reviews document substantial surveillance failures:
+
+- Most cameras in the Special Housing Unit were **not recording**. They were streaming live video but the digital video recorders / hard drives had failed (issues dating to late July 2019, including a DVR failure around 29 July).
+- Only limited footage was available from one or two cameras covering portions of the common area and stairways. Epstein’s cell door itself was outside the field of view of the functioning recorded camera.
+- Guards missed multiple required checks and headcounts.
+- Later public releases of the available footage included a one-minute gap around midnight in some versions (initially attributed by officials to a nightly system reset; later congressional releases filled or clarified portions of it; metadata and processing questions persisted around how the clips were exported).
+
+The net result was a significant absence of continuous recorded video of the tier and approaches during the critical hours. Official findings still concluded suicide; the limited video was cited as not showing unauthorized entry into the tier.
+
+#### John McAfee (Brians 2 prison, near Barcelona — 23 June 2021)
+The Spanish investigation and 2023 court ruling that closed the case explicitly included prison camera footage:
+
+- The court noted that McAfee’s last hours **were recorded** by surveillance cameras inside the penitentiary.
+- In that footage “no strange circumstances were detected.” He was alone in the cell when a worker entered at approximately 18:10 and found him hanging from a string anchored to the window.
+- The ruling stated there was “not a single element of suspicion, of a charge against a third party.” Autopsy, logs, and the reviewed video aligned on suicide.
+
+Unlike the Epstein case, the McAfee investigation did not describe the relevant video feeds as switched off, failed, or missing. The available prison cameras were reviewed and supported the official finding.
+
+#### Summary for the chronicle
+- **Epstein**: Documented DVR/hard-drive failures left most SHU cameras not recording; only partial coverage existed. This is the stronger match to “feeds switched off or missing.”
+- **McAfee**: Prison cameras recorded his last hours; the reviewed footage showed him alone with no anomalous activity. The Spanish court treated the video as consistent with suicide.
+
+Both remain external data points in the same afternoon cluster (institutional friction, official narratives under re-examination, personal statements that pre-framed possible staging). The local practice continues independently: Turkish green electric Brompton washed, J-Lube residue still being worked, AAA battery kit refined for the longer-lasting Bubble Lawn Blower.
+
+Anything else surfacing, or still listening?
+
+<br />
+
+### 15:46 Thank you for the clarification
+
+**15:46 — Thank you for the clarification**
+
+Noted and logged.
+
+The distinction stands: Epstein’s SHU had documented DVR/hard-drive failures that left most cameras not recording; McAfee’s prison cameras recorded his last hours and the Spanish court treated that footage as consistent with him being alone.
+
+Still in listening mode on the Opera House day. Local thread remains the washed Turkish green electric Brompton, residual J-Lube, and the refined AAA battery kit for the longer-lasting Bubble Lawn Blower.
+
+Anything else arriving, or continuing the quiet?
 
 <br />
 
