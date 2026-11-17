@@ -1,5 +1,17 @@
 # Calming Your Nervous System
 
+<kbd><img src="images/Picture06061.jpg" width="600" /></kbd>  
+
+> PEACE MEMORIAL  
+>  
+> May you have happiness and wisdom in your life  
+>  
+> https://x.com/BokkyPooBah/status/2114198016823529865  
+
+---
+
+## Calming Your Nervous System
+
 Calming the nervous system is the first practical step toward clearer perception and ordinary presence. Many traditions point to the same foundation under different names: being still, returning to the breath, or Dhikr. When the system is no longer dominated by survival responses, the field around you becomes easier to notice and the next steps become simpler.
 
 ## Why this matters
