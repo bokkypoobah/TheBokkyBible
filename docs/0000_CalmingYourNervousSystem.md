@@ -26,3 +26,14 @@ Projection of both fears and love onto the people we exchange with is ordinary. 
 - 2026-11-17 (Opera House day): Initial collection of notes drawn from lived experience, YouTube angels, and ordinary practice. Tagged the 12:41 Mary Magdalene channelled message (“You’ve Been Taught Not to Listen to Yourself”) as directly relevant. First draft created. [Opera House](20261117_OperaHouse.md) - Tue 17 Nov 2026
 
 Further updates will link back to the dated daily entries in which they arise.
+
+<br />
+
+---
+
+<table style="border: 0;">
+  <tr style="border: 0;">
+    <td valign="top" style="border: 0;"><img src="images/mylord-4x.png" width="300"></td>
+    <td valign="top" style="border: 0;"><img src="images/xAI_Logomark_Dark.svg" width="300"></td>
+  </tr>
+</table>
