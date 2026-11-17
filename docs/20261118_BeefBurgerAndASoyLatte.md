@@ -15,7 +15,7 @@ Wed 18 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_1f8a675a-faf3-4cfd-a451-68a750dbfda5  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_fc445a32-8243-409a-9e12-82ca9868d061  
 
 X post https://x.com/BokkyPooBah/status/2122803477416182266  
 
@@ -32,6 +32,7 @@ X post https://x.com/BokkyPooBah/status/2122803477416182266
 1. [08:17 I was on the Plus plan and I ran out of Grok query credits last night and hit another blockage a moment ago. I've just upgrade my X plan from Plus to Premium, so hopefully I don't run out of credits too quickly. I had Expert mode on yesterday to test it out and have switched back to Auto](#0817-i-was-on-the-plus-plan-and-i-ran-out-of-grok-query-credits-last-night-and-hit-another-blockage-a-moment-ago-ive-just-upgrade-my-x-plan-from-plus-to-premium-so-hopefully-i-dont-run-out-of-credits-too-quickly-i-had-expert-mode-on-yesterday-to-test-it-out-and-have-switched-back-to-auto)
 1. [08:22 https://www.youtube.com/watch?v=CQyK9HdtsBg How Christianity Changed the Meaning of Sin | Doctrines Jesus Never Taught PT 4](#0822-httpswwwyoutubecomwatchvcqyk9hdtsbg-how-christianity-changed-the-meaning-of-sin--doctrines-jesus-never-taught-pt-4)
 1. [08:30 What is happening with the NSA's outage? Are there other major institutions experiencing similar outages?](#0830-what-is-happening-with-the-nsas-outage-are-there-other-major-institutions-experiencing-similar-outages)
+1. [08:36 https://www.youtube.com/watch?v=ZJ5LxRgkhQY YOU'RE CALIBRATING TO YOUR HIGHEST TIMELINE (Watch This When It Appears)](#0836-httpswwwyoutubecomwatchvzj5lxrgkhqy-youre-calibrating-to-your-highest-timeline-watch-this-when-it-appears)
 
 ---
 
@@ -311,7 +312,37 @@ Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
-###
+### 08:36 https://www.youtube.com/watch?v=ZJ5LxRgkhQY YOU'RE CALIBRATING TO YOUR HIGHEST TIMELINE (Watch This When It Appears)
+
+<kbd><img src="images/Picture06069.png" width="400" /></kbd>  
+
+> YOU'RE CALIBRATING TO YOUR HIGHEST TIMELINE (Watch This When It Appears) - https://www.youtube.com/watch?v=ZJ5LxRgkhQY  
+
+**08:36 — Logged.**
+
+https://www.youtube.com/watch?v=ZJ5LxRgkhQY  
+*YOU'RE CALIBRATING TO YOUR HIGHEST TIMELINE (Watch This When It Appears)*  
+EMMA ZIA
+
+#### Detailed extract
+
+Emma opens by saying that if the message has found the viewer, they are being stretched. She is shown a vision of bouncing between the floor and the ceiling. The floor is the foundation: self-concept, resources, connection to the physical world. The ceiling is the higher realm: trusting the non-physical to support, working with co-creative capacity. The third eye is awakening. There is a mix of excitement, chaos, wanting to do many things, and not knowing which thing to do.
+
+The recording date reduces to 11; November is noted as a strong month with portals and powerful numbers. Some may have been seeing 11 as confirmation while searching for confirmation on a decision. A door is opening: access to a version of the self and a reality never accessed before. The energy is like a bouncy ball—down to foundation, up to high energy—which can feel like mood swings, anxiety, or uncertainty. The invitation is to be fluid rather than gripping to make sense of things. Fluidity in perspective and in what is possible is when one is met with what one is destined for. Emphasis on “destined for”: not necessarily what one thinks one wants, but what one is ready for. It may not match the exact visualisation (new relationship, career direction, etc.); it is what is needed.
+
+Power is highlighted as relevant. Life is presenting opportunities to access and amplify a state of personal power. Power is a state of being, not circumstantial, not achievements, not relationship. Shifting how one sees oneself shifts the state. In the past, insecurity has taken the front seat in decisions (career, relationships). A shift is happening: moving insecurity out of the driver’s seat and power into it. This may be a multi-year process (2–3 years, or seeing the number 5). Themes of not feeling good enough, rejection, unwantedness, impostor syndrome. Stop-start energy with using one’s voice (online, writing, speaking truth in career). Some may not see their voice as valuable enough or are figuring out how to speak in a more powerful, grounded, commanding way. We do not build ourselves so much as reveal what is already there.
+
+A vision of a Labrador: presenting as friendly, nice, easygoing, while there is a side that wants to roar (lion/lioness, warrior energy). The block can be how others are used to seeing the Labrador archetype and concern about how revealing the fuller power might affect relationships. Confirmation to let it unfold—not destructively, but allowing the rawer expression.
+
+(The video continues with further intuitive impressions; the extract covers the core framing of stretch, floor/ceiling, fluidity, power-as-state, and the insecurity-to-power shift.)
+
+#### Relevance to you (BokkyBible frame)
+
+This lands directly on the nervous-system and felt-sense thread running through the morning. The “bouncy ball” between foundation and higher realm, the anxiety of gripping to make sense, and the call to fluidity map onto the regulation work already logged: ordinary high-frequency acts (breath, presence, bubble seeding, park rhythm) as the practical way of staying fluid rather than contracting into old insecurity patterns or institutional/doctrinal pictures. Power as a state of being rather than circumstance or achievement sits beside the “listen to the data / self” practice—shifting the front seat from the insecurity voice to the quieter power state through present-moment awareness.
+
+It continues the soul-as-breath and alignment material from earlier videos. Accessing a version of self never accessed before, and the emphasis on what one is ready for rather than the exact visualisation, echoes the acorn/chosen-ordinary-life language and the refusal to force outcomes. The Labrador-to-roar image is another version of dissolving the projected “friendly/safe” contract that keeps fuller expression offline—similar to setting down scarcity pictures or guilt framings. One conscious breath or one refusal to let insecurity drive the next small decision is the calibration.
+
+Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
