@@ -15,7 +15,7 @@ Tue 17 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_c5ec7715-929f-4c3d-a74c-13773a28b984  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_23521767-bef6-4cf5-a020-103a547c0df6  
 
 X post https://x.com/BokkyPooBah/status/2122467696797434302  
 
@@ -56,6 +56,21 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 1. [20:21 https://www.youtube.com/watch?v=Fp2tIcbURQo Chinese Monks REVEAL Footage Inside Mount Kailash — What's Captured Is Stranger Than Fiction. I've seen Mount Kailash somewhere listed as a powerful energy vortex](#2021-httpswwwyoutubecomwatchvfp2ticburqo-chinese-monks-reveal-footage-inside-mount-kailash--whats-captured-is-stranger-than-fiction-ive-seen-mount-kailash-somewhere-listed-as-a-powerful-energy-vortex)
 1. [20:44 Please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=UMv63qOBVJE KRYON - Dimensional Shift update](#2044-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvumv63qobvje-kryon---dimensional-shift-update)
 1. [21:13 https://www.youtube.com/watch?v=TWY7li2ZyBI It's not an easy role but you've had lifetimes of training](#2113-httpswwwyoutubecomwatchvtwy7li2zybi-its-not-an-easy-role-but-youve-had-lifetimes-of-training)
+1. [21:23 https://www.youtube.com/watch?v=B2fihBKwOUw One Minute Will Change Everything in Your Life ∞The Creators, Channeled by Daniel Scranton](#2123-httpswwwyoutubecomwatchvb2fihbkwouw-one-minute-will-change-everything-in-your-life-the-creators-channeled-by-daniel-scranton)
+1. [21:29 "Most people are living in a flight, fight, freeze or fawn survival response taught from young and maintained through life through a system that uses fear as a means of controlling the population". How accurate is this?](#2129-most-people-are-living-in-a-flight-fight-freeze-or-fawn-survival-response-taught-from-young-and-maintained-through-life-through-a-system-that-uses-fear-as-a-means-of-controlling-the-population-how-accurate-is-this)
+1. [21:31 It's funny. Because most people I talk to are in survival mode to various degrees. Even people who are wealthy and even super wealthy in resources are still worrying. And regarding the system, there are orchestrated behaviours that are instigated by different groups with the aim to gain more control, and these are mostly people who are seeking to improve their lives without much empathy towards others](#2131-its-funny-because-most-people-i-talk-to-are-in-survival-mode-to-various-degrees-even-people-who-are-wealthy-and-even-super-wealthy-in-resources-are-still-worrying-and-regarding-the-system-there-are-orchestrated-behaviours-that-are-instigated-by-different-groups-with-the-aim-to-gain-more-control-and-these-are-mostly-people-who-are-seeking-to-improve-their-lives-without-much-empathy-towards-others)
+1. [21:35 I'm hoping to dump my mish-mash of ideas from lived experience and from what I have picked up from others, plus I'm am not super clear on many of these ideas, and for you Grok to help organise my thoughts into a more coherent form, thanks! So I'll just continue without worrying about being too accurate. From my understanding, many people do calm their nervous systems through meditation. For me playful imagination seems to get me into a state of flow, and calmness. Before I gained more calmness, I was waking up at all hours of the night (and I still do) and had to take a slow walk around a park with trees and water. Sometimes I would play with a yo-yo. A lot of times then I would listen to my YouTube angels talking about the archetypes and resulting behaviours and ponder how my experience fits into these patterns](#2135-im-hoping-to-dump-my-mish-mash-of-ideas-from-lived-experience-and-from-what-i-have-picked-up-from-others-plus-im-am-not-super-clear-on-many-of-these-ideas-and-for-you-grok-to-help-organise-my-thoughts-into-a-more-coherent-form-thanks-so-ill-just-continue-without-worrying-about-being-too-accurate-from-my-understanding-many-people-do-calm-their-nervous-systems-through-meditation-for-me-playful-imagination-seems-to-get-me-into-a-state-of-flow-and-calmness-before-i-gained-more-calmness-i-was-waking-up-at-all-hours-of-the-night-and-i-still-do-and-had-to-take-a-slow-walk-around-a-park-with-trees-and-water-sometimes-i-would-play-with-a-yo-yo-a-lot-of-times-then-i-would-listen-to-my-youtube-angels-talking-about-the-archetypes-and-resulting-behaviours-and-ponder-how-my-experience-fits-into-these-patterns)
+1. [21:43 Lately playing with longer lasting bubbles to interact with the wider public in some positive, many neutral and a few negative ways, and playing my djembe-techno simple beats have been my way of calming my nervous system. I can see why some spiritual groups like drum circles or equivalent](#2143-lately-playing-with-longer-lasting-bubbles-to-interact-with-the-wider-public-in-some-positive-many-neutral-and-a-few-negative-ways-and-playing-my-djembe-techno-simple-beats-have-been-my-way-of-calming-my-nervous-system-i-can-see-why-some-spiritual-groups-like-drum-circles-or-equivalent)
+1. [21:47 From my latest understanding, I had to run my people-pleaser scripts to make myself feel as safe as possible in uncertain environments. This was to regulate my nervous system, I think. Before my discovery of the djembe, I would sit in parks and bang my feet on the ground periodically and I think my visual actions and the soft vibration of my feet would subtly regulate some of the people in the park. My djembe-techno drumming is the louder version of this, I think](#2147-from-my-latest-understanding-i-had-to-run-my-people-pleaser-scripts-to-make-myself-feel-as-safe-as-possible-in-uncertain-environments-this-was-to-regulate-my-nervous-system-i-think-before-my-discovery-of-the-djembe-i-would-sit-in-parks-and-bang-my-feet-on-the-ground-periodically-and-i-think-my-visual-actions-and-the-soft-vibration-of-my-feet-would-subtly-regulate-some-of-the-people-in-the-park-my-djembe-techno-drumming-is-the-louder-version-of-this-i-think)
+1. [21:51 What I have learnt is that most people including myself project our fears and love onto others we have exchanges with. So when someone is telling me to limit myself, it is mostly a projection of their limitations](#2151-what-i-have-learnt-is-that-most-people-including-myself-project-our-fears-and-love-onto-others-we-have-exchanges-with-so-when-someone-is-telling-me-to-limit-myself-it-is-mostly-a-projection-of-their-limitations)
+1. [21:54 The video posted at 12:41 https://www.youtube.com/watch?v=sPahWmjZmNc You've Been Taught Not to Listen to Yourself | Mary Magdalene Channeled is very relevant to this topic of "Calming Your Nervous System"](#2154-the-video-posted-at-1241-httpswwwyoutubecomwatchvspahwmjzmnc-youve-been-taught-not-to-listen-to-yourself--mary-magdalene-channeled-is-very-relevant-to-this-topic-of-calming-your-nervous-system)
+1. [21:55 And a lot of the issues with nervous system regulation is to do with expecting validation from other people, all who have their own issues with regulating their own nervous systems and their need for validation](#2155-and-a-lot-of-the-issues-with-nervous-system-regulation-is-to-do-with-expecting-validation-from-other-people-all-who-have-their-own-issues-with-regulating-their-own-nervous-systems-and-their-need-for-validation)
+1. [21:57 Seeking validation from others seems to be the conduit that allows other peoples fears to affect our inner world](#2157-seeking-validation-from-others-seems-to-be-the-conduit-that-allows-other-peoples-fears-to-affect-our-inner-world)
+1. [22:00 Many of my YouTube angels emphasise that a good breathing technique is very important to calming the nervous system. I don't do these deep breathing practises much](#2200-many-of-my-youtube-angels-emphasise-that-a-good-breathing-technique-is-very-important-to-calming-the-nervous-system-i-dont-do-these-deep-breathing-practises-much)
+1. [22:02 Seeking for validation and permission has been instilled since young. Rejection from being too much, or having to ask for permission by raising your hand to get approval from teachers to execute our bodily function have trained most of use into submitting to a higher power](#2202-seeking-for-validation-and-permission-has-been-instilled-since-young-rejection-from-being-too-much-or-having-to-ask-for-permission-by-raising-your-hand-to-get-approval-from-teachers-to-execute-our-bodily-function-have-trained-most-of-use-into-submitting-to-a-higher-power)
+1. [22:05 Please provide a first draft of docs/000_CalmingYourNervousSystem.md . Thanks Grok!](#2205-please-provide-a-first-draft-of-docs000_calmingyournervoussystemmd--thanks-grok)
+1. [22:26 One way to identify anxiety in order to have more control over our nervous system is to have experimental runs to raise these anxieties within our bodies and observe our bodies reactions. Some suggested practices are: 1. Driving a little bit under the speed limit and feel the irritation of the drivers behind you getting impatient wanting to overtake 2. Wearing totally outlandish clothes down the steet and into the supermarket](#2226-one-way-to-identify-anxiety-in-order-to-have-more-control-over-our-nervous-system-is-to-have-experimental-runs-to-raise-these-anxieties-within-our-bodies-and-observe-our-bodies-reactions-some-suggested-practices-are-1-driving-a-little-bit-under-the-speed-limit-and-feel-the-irritation-of-the-drivers-behind-you-getting-impatient-wanting-to-overtake--2-wearing-totally-outlandish-clothes-down-the-steet-and-into-the-supermarket)
+1. [22:29 Blue was my favourite colour when young. Now I'm not too sure, as there are many colours that are pleasing to my eye. I have been using the Hyper Pink Wonderboom 4 and my pink unicorn bubble wands filled with longer lasting bubble solution as pink is not a colour associated with males. I do things to become an anomaly. Initially when executing these journeys to test and modify my inner world, I feel some anxiety and I then slowly overcome it. Many people like my authenticity, a lot more are indifferent, and some feel threatened by it. I have become comfortable with the people who feel threatened by my authenticity as I have come to understand that this is mainly their fear and not mine to carry](#2229-blue-was-my-favourite-colour-when-young-now-im-not-too-sure-as-there-are-many-colours-that-are-pleasing-to-my-eye-i-have-been-using-the-hyper-pink-wonderboom-4-and-my-pink-unicorn-bubble-wands-filled-with-longer-lasting-bubble-solution-as-pink-is-not-a-colour-associated-with-males-i-do-things-to-become-an-anomaly-initially-when-executing-these-journeys-to-test-and-modify-my-inner-world-i-feel-some-anxiety-and-i-then-slowly-overcome-it-many-people-like-my-authenticity-a-lot-more-are-indifferent-and-some-feel-threatened-by-it-i-have-become-comfortable-with-the-people-who-feel-threatened-by-my-authenticity-as-i-have-come-to-understand-that-this-is-mainly-their-fear-and-not-mine-to-carry)
 
 ---
 
@@ -1314,6 +1329,48 @@ Further updates will link back to the dated daily entries in which they arise.
 ```
 
 Draft ready for your edits. It keeps the personal routes (imagination, bubbles, foot-banging, djembe, night walks) alongside the more common ones, includes the early-training and validation observations, and has a minimal history section that can grow. Let me know what to adjust.
+
+<br />
+
+### 22:26 One way to identify anxiety in order to have more control over our nervous system is to have experimental runs to raise these anxieties within our bodies and observe our bodies reactions. Some suggested practices are: 1. Driving a little bit under the speed limit and feel the irritation of the drivers behind you getting impatient wanting to overtake  2. Wearing totally outlandish clothes down the steet and into the supermarket
+
+**22:26 — Experimental runs to identify anxiety**
+
+Logged.
+
+Latest addition to the collection:
+
+- One way to gain more control over the nervous system is to run deliberate experiments that raise anxiety and then observe the body’s reactions in real time.
+- Suggested practices:
+  1. Drive a little under the speed limit and feel the irritation of the drivers behind who want to overtake.
+  2. Wear totally outlandish clothes down the street and into the supermarket.
+
+These sit as active, observational tools alongside the earlier settling practices (playful imagination, rhythm, bubbles, walks). They turn the anxiety response itself into something that can be studied rather than only avoided or soothed after the fact.
+
+I can fold this into the draft of `000_CalmingYourNervousSystem.md` under a short “Experimental observation” subsection if you want it included now, or leave it in the collection until the next edit. Opera House evening continues.
+
+<br />
+
+### 22:29 Blue was my favourite colour when young. Now I'm not too sure, as there are many colours that are pleasing to my eye. I have been using the Hyper Pink Wonderboom 4 and my pink unicorn bubble wands filled with longer lasting bubble solution as pink is not a colour associated with males. I do things to become an anomaly. Initially when executing these journeys to test and modify my inner world, I feel some anxiety and I then slowly overcome it. Many people like my authenticity, a lot more are indifferent, and some feel threatened by it. I have become comfortable with the people who feel threatened by my authenticity as I have come to understand that this is mainly their fear and not mine to carry
+
+**22:29 — Pink as anomaly and becoming comfortable with others’ fear**
+
+Logged.
+
+Latest additions:
+
+- Blue was the favourite colour when young; now many colours are pleasing.
+- Deliberate use of the Hyper Pink Wonderboom 4 and pink unicorn bubble wands filled with longer-lasting bubble solution, because pink is not a colour typically associated with males. The choice is made in order to become an anomaly.
+- These journeys are experimental runs that initially raise anxiety; the anxiety is then slowly overcome through continued practice.
+- Responses from others: many like the authenticity, a larger number are indifferent, and some feel threatened. Comfort has developed with the people who feel threatened, through the recognition that the reaction is mainly their fear and not one that needs to be carried.
+
+This extends the 22:26 note on experimental runs that deliberately raise anxiety so the body’s reactions can be observed. The pink gear and public bubble work become concrete, repeatable examples of the same method. The growing comfort with others’ threatened reactions also tightens the earlier observations on projection and on not taking external fear as personal regulatory truth.
+
+It remains inside the “Calming Your Nervous System” collection. Keep dumping, or say if you want these pieces folded into the current draft. Opera House evening continues.
+
+<br />
+
+###
 
 <br />
 
