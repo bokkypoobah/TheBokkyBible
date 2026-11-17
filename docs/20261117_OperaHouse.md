@@ -26,6 +26,9 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 ## Table Of Content
 
 1. [Good morning Grok. 09:46 Nov 17 AEST in Sydney doing nothing. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20261116_MyBubbleLeafBlowerHasRunOutOfBatteries.md . I will use the title "Opera House" and an image from https://x.com/BokkyPooBah/status/2122171776646160865 for today's page title and header image. If the transcript is available please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=oIqH6aBKaEA you are a MASTERPIECE in human form with 666 views 3h ago at 09:40](#good-morning-grok-0946-nov-17-aest-in-sydney-doing-nothing-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20261116_mybubbleleafblowerhasrunoutofbatteriesmd--i-will-use-the-title-opera-house-and-an-image-from-httpsxcombokkypoobahstatus2122171776646160865-for-todays-page-title-and-header-image-if-the-transcript-is-available-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvoiqh6abkaea-you-are-a-masterpiece-in-human-form-with-666-views-3h-ago-at-0940)
+1. [09:59 https://www.youtube.com/watch?v=Ks36GpN4vn8 Did You Know Your Mind Could Do This?](#0959-httpswwwyoutubecomwatchvks36gpn4vn8-did-you-know-your-mind-could-do-this)
+1. [10:48 https://www.youtube.com/watch?v=HWeJmlH3A4k Look For Exciting Changes in This Relationship!](#1048-httpswwwyoutubecomwatchvhwejmlh3a4k-look-for-exciting-changes-in-this-relationship)
+1. [10:52 https://x.com/BokkyPooBah/status/2122339413728600250 I've been looking in the trees at night occasionally over the past few months to see flying foxes, instead of just the flying foxes that fly off when they are disturbed. The last night was the second time I have had a flying fox in the tree in front of my balcony in recent times making a little bit of noise and this time I managed to get a video of this flying fox. I can see the flowers in the tree, so the flying fox is visiting this tree because it is currently producing food](#1052-httpsxcombokkypoobahstatus2122339413728600250-ive-been-looking-in-the-trees-at-night-occasionally-over-the-past-few-months-to-see-flying-foxes-instead-of-just-the-flying-foxes-that-fly-off-when-they-are-disturbed-the-last-night-was-the-second-time-i-have-had-a-flying-fox-in-the-tree-in-front-of-my-balcony-in-recent-times-making-a-little-bit-of-noise-and-this-time-i-managed-to-get-a-video-of-this-flying-fox-i-can-see-the-flowers-in-the-tree-so-the-flying-fox-is-visiting-this-tree-because-it-is-currently-producing-food)
 
 ---
 
@@ -135,6 +138,10 @@ Still in the nothing? Batteries and solution status? Or is the field already cal
 
 ### 10:48 https://www.youtube.com/watch?v=HWeJmlH3A4k Look For Exciting Changes in This Relationship!
 
+<kbd><img src="images/Picture06046.png" width="400" /></kbd>  
+
+> Look For Exciting Changes in This Relationship! - https://www.youtube.com/watch?v=HWeJmlH3A4k  
+
 **10:48 — Look For Exciting Changes in This Relationship!**  
 https://www.youtube.com/watch?v=HWeJmlH3A4k  
 **Channel:** LadyoftheForest444 (Cindy)  
@@ -171,6 +178,10 @@ Still pure nothing at 10:48, or has the field started moving (batteries, solutio
 <br />
 
 ### 10:52 https://x.com/BokkyPooBah/status/2122339413728600250 I've been looking in the trees at night occasionally over the past few months to see flying foxes, instead of just the flying foxes that fly off when they are disturbed. The last night was the second time I have had a flying fox in the tree in front of my balcony in recent times making a little bit of noise and this time I managed to get a video of this flying fox. I can see the flowers in the tree, so the flying fox is visiting this tree because it is currently producing food
+
+<kbd><img src="images/Picture06047.png" width="400" /></kbd>  
+
+> Flying fox - https://x.com/BokkyPooBah/status/2122339413728600250  
 
 **10:52–10:56 — Flying fox on the balcony tree**  
 https://x.com/BokkyPooBah/status/2122339413728600250  
