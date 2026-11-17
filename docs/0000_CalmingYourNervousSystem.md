@@ -1,5 +1,7 @@
 # Calming Your Nervous System
 
+And other matters of vast importance.
+
 <kbd><img src="images/Picture06061.jpg" width="600" /></kbd>  
 
 > PEACE MEMORIAL  
