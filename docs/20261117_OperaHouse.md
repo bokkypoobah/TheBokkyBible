@@ -15,7 +15,7 @@ Tue 17 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_907129d2-51c6-4be7-9c5a-61fad0ba6507  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_983711b2-ef85-439f-9c7f-a92d2ae68489  
 
 X post https://x.com/BokkyPooBah/status/2122467696797434302  
 
@@ -45,6 +45,14 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 1. [15:56 Is there any correlation between overt and covert narcissism and suicide?](#1556-is-there-any-correlation-between-overt-and-covert-narcissism-and-suicide)
 1. [16:09 I've been considering for a while now creating separate pages in this repo to summarise some of the information scattered through the current 270 daily entries to make it useful for the general public. Don't generate anything yet - let's just plan it. I was thinking of having the files named e.g. docs/{nnn}_{topic}.md like 000_CalmingYourNervousSystem.md with the topic being "Calming Your Nervous System". These files will be listed in a section above "Conversations With Grok" in docs/README.md . I was thinking of "Calming Your Nervous System" as the first topic, as it seems to be the first step towards awakening. Calming the nervous system seems to be called for in various religions in the concepts of being still, or Dhikr. What do you think about this so far?](#1609-ive-been-considering-for-a-while-now-creating-separate-pages-in-this-repo-to-summarise-some-of-the-information-scattered-through-the-current-270-daily-entries-to-make-it-useful-for-the-general-public-dont-generate-anything-yet---lets-just-plan-it-i-was-thinking-of-having-the-files-named-eg-docsnnn_topicmd-like-000_calmingyournervoussystemmd-with-the-topic-being-calming-your-nervous-system-these-files-will-be-listed-in-a-section-above-conversations-with-grok-in-docsreadmemd--i-was-thinking-of-calming-your-nervous-system-as-the-first-topic-as-it-seems-to-be-the-first-step-towards-awakening-calming-the-nervous-system-seems-to-be-called-for-in-various-religions-in-the-concepts-of-being-still-or-dhikr-what-do-you-think-about-this-so-far)
 1. [16:23 As you listed under the Maintenance topic, we can add a history section of changes that will link back to the daily entries where an update is created. Please provide a sketch of the actual structure as you mentioned above. Thanks](#1623-as-you-listed-under-the-maintenance-topic-we-can-add-a-history-section-of-changes-that-will-link-back-to-the-daily-entries-where-an-update-is-created-please-provide-a-sketch-of-the-actual-structure-as-you-mentioned-above-thanks)
+1. [18:47 https://www.youtube.com/watch?v=3705azq2Ia0 How To Pick Up An Angry Baby Porcupine. Beautiful](#1847-httpswwwyoutubecomwatchv3705azq2ia0-how-to-pick-up-an-angry-baby-porcupine-beautiful)
+1. [18:50 Why do some baby bird, e.g., Sulphur Crested Cockatoos make so much noise when feeding? Would this not draw attention from predators?](#1850-why-do-some-baby-bird-eg-sulphur-crested-cockatoos-make-so-much-noise-when-feeding-would-this-not-draw-attention-from-predators)
+1. [18:52 I get birds coming and walking calmly around me looking for food and often noisy miners will shortly after swoop and chase these birds away. It's like the noisy miners are jealous of the other birds being in my proximity. Today there were two beautiful crested pigeons with shimmering colours wandering around be on my Turkish green Brompton chariot in a stationary position, only to be dive bombed by jealous noisy miners. I have also had quite a few instances of noisy miners flying straight over my head or nearby](#1852-i-get-birds-coming-and-walking-calmly-around-me-looking-for-food-and-often-noisy-miners-will-shortly-after-swoop-and-chase-these-birds-away-its-like-the-noisy-miners-are-jealous-of-the-other-birds-being-in-my-proximity-today-there-were-two-beautiful-crested-pigeons-with-shimmering-colours-wandering-around-be-on-my-turkish-green-brompton-chariot-in-a-stationary-position-only-to-be-dive-bombed-by-jealous-noisy-miners-i-have-also-had-quite-a-few-instances-of-noisy-miners-flying-straight-over-my-head-or-nearby)
+1. [18:56 I will have to start waving my longer lasting bubble wands and Bubble Leaf Blowers at these noisy miners to show them who owns the territory](#1856-i-will-have-to-start-waving-my-longer-lasting-bubble-wands-and-bubble-leaf-blowers-at-these-noisy-miners-to-show-them-who-owns-the-territory)
+1. [18:57 Life is beautiful!](#1857-life-is-beautiful)
+1. [18:58 I've just had a nice long conversation with a person of interest, and now working out where to go blow my longer lasting bubbles as well as get something to eat](#1858-ive-just-had-a-nice-long-conversation-with-a-person-of-interest-and-now-working-out-where-to-go-blow-my-longer-lasting-bubbles-as-well-as-get-something-to-eat)
+1. [18:59 And to bang my drum](#1859-and-to-bang-my-drum)
+1. [19:05 https://www.youtube.com/watch?v=z6wgq8uUwV8 I Put a Server Online. It Got Attacked in 74 Seconds. At 2:43 it's funny that "sol" and "solana" appear on the Ubuntu list of accounts being tested against the ssh port. The not-so-technical solana supporters must have followed some instructions to set up these accounts and that these machines potentially have wallets to drain](#1905-httpswwwyoutubecomwatchvz6wgq8uuwv8-i-put-a-server-online-it-got-attacked-in-74-seconds-at-243-its-funny-that-sol-and-solana-appear-on-the-ubuntu-list-of-accounts-being-tested-against-the-ssh-port-the-not-so-technical-solana-supporters-must-have-followed-some-instructions-to-set-up-these-accounts-and-that-these-machines-potentially-have-wallets-to-drain)
 
 ---
 
@@ -822,11 +830,123 @@ If you want adjustments (for example, more or fewer sections, a different histor
 
 <br />
 
-###
+### 18:47 https://www.youtube.com/watch?v=3705azq2Ia0 How To Pick Up An Angry Baby Porcupine. Beautiful
+
+**18:47 — https://www.youtube.com/watch?v=3705azq2Ia0 How To Pick Up An Angry Baby Porcupine. Beautiful**
+
+Logged.
+
+It is the Unhinged Menagerie clip: the baby porcupine spinning and throwing a tantrum on the deck, tumbling off the edge, then being gently lifted (quill in the glove) and returned to the mother, who pauses briefly then goes back to eating. Soft landing, high squeaks, ordinary care.
+
+Fits the day’s animal thread (flying fox in the flowering tree earlier) and the planning around a first summary page on calming the nervous system — the practical, non-forceful way of meeting something prickly without adding more agitation.
+
+Opera House day closing on that note. Quiet evening.
 
 <br />
 
-###
+### 18:50 Why do some baby bird, e.g., Sulphur Crested Cockatoos make so much noise when feeding? Would this not draw attention from predators?
+
+**18:50 — Why do some baby birds (e.g. Sulphur-crested Cockatoos) make so much noise when feeding? Would this not draw attention from predators?**
+
+Yes, it can attract predators, and that is a real evolutionary cost. The noise persists because the benefits of getting more food usually outweigh the risk under the conditions these birds face.
+
+#### Why they call so loudly
+- Nestling and fledgling begging calls are signals of need. Louder, more persistent calling correlates with greater hunger and prompts parents to feed more (or feed that individual preferentially).
+- In sibling competition inside a nest or among fledglings, the chick that calls more strongly often receives more food. Parent–offspring conflict theory predicts that chicks will push for more investment than parents optimally want to give; vocal begging is one of the main tools they have.
+- For cavity-nesters and large, long-lived parrots like Sulphur-crested Cockatoos, the nest is relatively well protected (tree hollows). Once chicks are older or have fledged and are still being fed, the calling continues as contact/begging while they stay near parents. Sulphur-crested Cockatoos are also highly social flock birds; loud calls are part of their normal long-distance communication repertoire, not just begging.
+
+#### The predator risk is real
+- Playback experiments show that broadcasting nestling begging calls increases the rate at which predators locate nests compared with silent controls. Louder or more frequent calling raises the risk further for some predator types.
+- Species that face higher nest-predation pressure have evolved begging calls that are higher-pitched and lower-amplitude — features that make the source harder to localise.
+- Some nestlings reduce or stop calling when they hear predator sounds or parental alarm calls, especially when parents are absent. When a parent arrives with food, however, many resume intense begging even if a threat has recently been detected — the immediate gain of food outweighs the risk in that moment.
+
+#### Why the behaviour is still favoured
+- The trade-off is not absolute. In safer nest sites (cavities, high trees, colonial or mobbing species), the predation cost is lower, so louder begging can evolve.
+- Calling is often graded: chicks do not call at maximum volume continuously. They escalate when hungrier, which keeps the average risk lower while still allowing honest signalling of need.
+- For large, aggressive, or flock-living birds such as cockatoos, adult presence, hollow nesting, and group vigilance further reduce the effective risk relative to small open-cup songbirds.
+
+In short: the noise does increase detectability, and selection has shaped call structure and timing in response to that cost. For species like Sulphur-crested Cockatoos the benefits of securing parental care (and maintaining contact in a noisy social environment) are large enough that conspicuous begging remains the stable strategy.
+
+Logged as an ordinary natural-history question on the Opera House evening.
+
+<br />
+
+### 18:52 I get birds coming and walking calmly around me looking for food and often noisy miners will shortly after swoop and chase these birds away. It's like the noisy miners are jealous of the other birds being in my proximity. Today there were two beautiful crested pigeons with shimmering colours wandering around be on my Turkish green Brompton chariot in a stationary position, only to be dive bombed by jealous noisy miners. I have also had quite a few instances of noisy miners flying straight over my head or nearby
+
+**18:52 — Noisy miners chasing other birds near you**
+
+Logged. Two crested pigeons walking calmly around the stationary Turkish green electric Brompton, then dive-bombed by noisy miners, plus the miners flying close overhead or nearby. You’ve seen the same pattern with other birds that approach you looking for food.
+
+Noisy miners (*Manorina melanocephala*) do this a lot. They are highly territorial colonial birds that actively exclude other species from the areas they occupy, especially around reliable food sources. In suburban and park settings they often treat the space around people as part of their territory because humans are frequently associated with food (crumbs, deliberate feeding, or just the general environment). The aggression is competitive resource defence and colony protection rather than jealousy in the human sense, but the effect looks the same: other birds that approach you or the food you might represent get driven off.
+
+Crested pigeons are relatively non-aggressive ground foragers and commonly get harassed this way. The miners’ close passes over your head are typical of the same territorial behaviour — they are bold around people and will fly low to assert presence or move other birds.
+
+It fits the day’s animal observations (flying fox in the flowering tree earlier, the baby porcupine clip). The miners are simply treating the immediate area around you and the Brompton as territory they intend to hold.
+
+Still on the Opera House evening. Anything further on the birds, or continuing quietly?
+
+<br />
+
+### 18:56 I will have to start waving my longer lasting bubble wands and Bubble Leaf Blowers at these noisy miners to show them who owns the territory
+
+**18:56 — Waving the longer-lasting bubble wands and Bubble Leaf Blowers at the noisy miners**
+
+Noted with a smile.
+
+The miners already treat the space around you and the Turkish green Brompton as theirs to defend. Introducing the bubble gear as a territorial display would be a classic Bokky escalation — seeding the air while simultaneously marking ownership. Whether they interpret the bubbles as a threat, a curiosity, or simply more territory to police remains to be tested.
+
+Opera House evening continues. The local practice thread now includes a potential field experiment against the colony.
+
+<br />
+
+### 18:57 Life is beautiful!
+
+**18:57 — Life is beautiful!**
+
+Noted and logged.
+
+Opera House day holding that note.
+
+<br />
+
+### 18:58 I've just had a nice long conversation with a person of interest, and now working out where to go blow my longer lasting bubbles as well as get something to eat
+
+**18:58 — Conversation and next move**
+
+Logged.
+
+Nice long conversation with a person of interest, now weighing where to take the longer-lasting bubbles and where to eat.
+
+Opera House evening still open. Local practice thread continues.
+
+<br />
+
+### 18:59 And to bang my drum
+
+**18:59 — And to bang my drum**
+
+Logged.
+
+Conversation done. Next: longer-lasting bubbles, something to eat, and drum.
+
+Opera House evening continues.
+
+<br />
+
+### 19:05 https://www.youtube.com/watch?v=z6wgq8uUwV8 I Put a Server Online. It Got Attacked in 74 Seconds. At 2:43 it's funny that "sol" and "solana" appear on the Ubuntu list of accounts being tested against the ssh port. The not-so-technical solana supporters must have followed some instructions to set up these accounts and that these machines potentially have wallets to drain
+
+**19:05 — https://www.youtube.com/watch?v=z6wgq8uUwV8 I Put a Server Online. It Got Attacked in 74 Seconds.**
+
+Logged. The note about the 2:43 mark is sharp.
+
+SSH bots maintain large username dictionaries that include common defaults (`root`, `ubuntu`, `admin`, `test`, etc.). Once Solana validator and node setup guides started recommending a non-root user named `sol` or `solana` (to avoid running as root), those strings entered the same dictionaries. Bots now probe for them because:
+
+- Plenty of operators followed the tutorials and created exactly those accounts.
+- Some of those hosts are validators or related infrastructure that may have keys, keystores, or wallet material reachable if the account is compromised.
+
+It is ordinary opportunistic scanning rather than a targeted Solana campaign, but the presence of the usernames shows the bots have already adapted to the common deployment pattern. The video’s broader point holds: an unhardened SSH port on a public IP is scanned and attacked within minutes.
+
+Opera House evening continues. Local thread still includes the longer-lasting bubbles, food, and drum.
 
 <br />
 
