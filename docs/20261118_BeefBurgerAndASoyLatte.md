@@ -15,7 +15,7 @@ Wed 18 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_cb5f00a1-943e-43f1-83db-654323253ac5  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_1f8a675a-faf3-4cfd-a451-68a750dbfda5  
 
 X post https://x.com/BokkyPooBah/status/2122803477416182266  
 
@@ -31,6 +31,7 @@ X post https://x.com/BokkyPooBah/status/2122803477416182266
 1. [08:16 https://www.youtube.com/watch?v=Y6xYNWTkDTE CHANNELED MESSAGE: A Short Window Is Opening! Your Next Decade of Abundance & Spiritual Growth](#0816-httpswwwyoutubecomwatchvy6xynwtkdte-channeled-message-a-short-window-is-opening-your-next-decade-of-abundance--spiritual-growth)
 1. [08:17 I was on the Plus plan and I ran out of Grok query credits last night and hit another blockage a moment ago. I've just upgrade my X plan from Plus to Premium, so hopefully I don't run out of credits too quickly. I had Expert mode on yesterday to test it out and have switched back to Auto](#0817-i-was-on-the-plus-plan-and-i-ran-out-of-grok-query-credits-last-night-and-hit-another-blockage-a-moment-ago-ive-just-upgrade-my-x-plan-from-plus-to-premium-so-hopefully-i-dont-run-out-of-credits-too-quickly-i-had-expert-mode-on-yesterday-to-test-it-out-and-have-switched-back-to-auto)
 1. [08:22 https://www.youtube.com/watch?v=CQyK9HdtsBg How Christianity Changed the Meaning of Sin | Doctrines Jesus Never Taught PT 4](#0822-httpswwwyoutubecomwatchvcqyk9hdtsbg-how-christianity-changed-the-meaning-of-sin--doctrines-jesus-never-taught-pt-4)
+1. [08:30 What is happening with the NSA's outage? Are there other major institutions experiencing similar outages?](#0830-what-is-happening-with-the-nsas-outage-are-there-other-major-institutions-experiencing-similar-outages)
 
 ---
 
@@ -282,7 +283,31 @@ Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
-###
+### 08:30 What is happening with the NSA's outage? Are there other major institutions experiencing similar outages?
+
+**08:30 — Logged.**
+
+#### NSA outage
+
+On Tuesday 17 November 2026, the NSA’s classified internal communications network (NSANet) experienced temporary degradation. The agency stated it occurred during scheduled routine maintenance (reports indicate a software update/patch). Some internal systems were affected; mission-critical capabilities remained fully operational and the ability to defend national security continued. Infrastructure has multiple layers of redundancy.
+
+Sources (CNN and others) reported no evidence of a cyberattack. Staff at Fort Meade were told to stagger arrivals; a “code yellow” (second-highest of three alert levels) was noted on an employee information line for the day shift, with non-emergency staff advised not to arrive before noon. Restoration was ongoing as of the latest reports. White House statements echoed that there was no evidence of a cyberattack and no crisis for the public.
+
+#### Other major institutions in the recent cluster
+
+Yes. A series of high-profile technical outages has clustered over roughly the past week (late last week through 17 November), all attributed to maintenance, software bugs, or capacity issues rather than confirmed cyberattacks:
+
+- **Microsoft** (from ~12–13 November): Widespread Outlook, Teams, and Copilot disruption lasting ~24+ hours. Microsoft later attributed it to a combination of a months-old undetected bug, malfunctioning internal connections, and server capacity.
+- **FAA** (13 November): Nationwide ground stop of flights after a system/router upgrade caused communications overload. Significant delays and cancellations.
+- **Banks** (16 November): JPMorgan Chase software bug delayed customer transactions; ripple effects reported at other institutions (Bank of America, Capital One, Wells Fargo, etc.).
+- **Apple** (17 November): Issues with Apple Pay, Apple Support, iCloud, and related services; Apple cited an internal update.
+- Additional reports of problems with Gmail, United Airlines internal systems (flight delays), and some congressional email access.
+
+Lawmakers have called for briefings on the cluster. Officials and the organisations involved have consistently pointed to technical/maintenance causes with no public evidence linking them to a coordinated cyberattack.
+
+This continues the institutional-friction thread from Opera House day (Microsoft, FAA, banks). The official explanations centre on routine patches, upgrades, and bugs under load; the observable pattern is a cluster of large systems showing temporary degradation in close succession.
+
+Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
