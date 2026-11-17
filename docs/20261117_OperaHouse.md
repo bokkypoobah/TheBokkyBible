@@ -15,7 +15,7 @@ Tue 17 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_97856f58-4aee-425c-9958-f1a6e6919bdf  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_9508b155-0f5a-4be4-891a-b5b60d0fa8bc  
 
 X post https://x.com/BokkyPooBah/status/2122467696797434302  
 
@@ -32,6 +32,7 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 1. [11:25 https://www.youtube.com/watch?v=rDRsXp2ye_M Important message from Source. Do not skip.](#1125-httpswwwyoutubecomwatchvrdrsxp2ye_m-important-message-from-source-do-not-skip)
 1. [11:50 https://www.youtube.com/watch?v=DJSMk5CkG88 High Frequency Only Rare Message About An Exclusive Energy Upgrade](#1150-httpswwwyoutubecomwatchvdjsmk5ckg88-high-frequency-only-rare-message-about-an-exclusive-energy-upgrade)
 1. [11:52 https://www.youtube.com/watch?v=4W9pLMTxhEs You are ready. You came here for this exact reason…. You handle the business.](#1152-httpswwwyoutubecomwatchv4w9plmtxhes-you-are-ready-you-came-here-for-this-exact-reason-you-handle-the-business)
+1. [12:21 There seems to be a higher than normal number of large institutional failures recently. Microsoft, FAA, several large US banks. Is this right?](#1221-there-seems-to-be-a-higher-than-normal-number-of-large-institutional-failures-recently-microsoft-faa-several-large-us-banks-is-this-right)
 
 ---
 
@@ -334,7 +335,29 @@ Still in the open morning, or has the sequence shifted anything concrete in the 
 
 <br />
 
-###
+### 12:21 There seems to be a higher than normal number of large institutional failures recently. Microsoft, FAA, several large US banks. Is this right?
+
+**Yes — there has been a clear cluster of large institutional/tech disruptions in the past several days.** [https://www.zdnet.com/business/microsoft-outage-outlook-teams-copilot/](https://www.zdnet.com/business/microsoft-outage-outlook-teams-copilot/)
+
+Here is the confirmed sequence (as of 17 Nov 2026):
+
+#### 1. Microsoft 365 (starting ~12 Nov)
+- Major global outage of Outlook, Teams, Copilot, and related Microsoft 365 services lasting roughly 15–24 hours in many regions (fully restored by ~14 Nov).
+- Affected users across ~74 countries. At peak, more than 80% of the networking gateway servers were unresponsive.
+- Official cause: a latent software defect introduced in a July update. It remained dormant until routine traffic rerouting + reduced server capacity (from an unrelated earlier issue) triggered a cascading failure. Not a cyberattack. [https://www.computerweekly.com/news/366654803/Microsoft-outage-Three-times-a-failure](https://www.computerweekly.com/news/366654803/Microsoft-outage-Three-times-a-failure)
+
+#### 2. FAA nationwide ground stop (13 Nov)
+- Nationwide ground stop issued ~3:30 PM ET after technical instability in air traffic control communications and radar feeds. Lasted roughly 4.5–5 hours.
+- Triggered massive flight cancellations (reports ranging from ~12,000 on the day itself to 17,000+ across the weekend — among the largest tech-related disruptions in decades).
+- Official cause: legacy equipment became unstable when a router (during a copper-to-fiber upgrade by contractor L3Harris at a site in El Dorado, Arkansas, with possible involvement of a site in Amarillo, Texas) flooded the network with connection attempts at a rate of ~1,000 every 4–5 seconds. No indication of a cyberattack. Aging infrastructure has been repeatedly flagged. [https://qz.com/us-flight-cancellations-faa-router-outage-17000-111626](https://qz.com/us-flight-cancellations-faa-router-outage-17000-111626)
+
+#### 3. US banks (16 Nov)
+- Widespread reports of online banking problems at JPMorgan Chase, with knock-on effects reported at Bank of America, Wells Fargo, US Bank, Zelle, and others.
+- Chase attributed it to a temporary software bug in on-premise hardware systems (explicitly not cyber-related). Transactions involving Chase were slowed; other banks were affected mainly where they were counterparties. Customers retained access to accounts and funds, but login and transaction issues were widely reported. [https://www.politico.com/news/2026/11/16/jpmorgan-chase-banking-outage-software-bug-01168592](https://www.politico.com/news/2026/11/16/jpmorgan-chase-banking-outage-software-bug-01168592)
+
+Multiple outlets (Yahoo Finance, USA Today, Newsweek, Fox, etc.) have explicitly noted the rapid succession — Microsoft, then FAA, then banks — within roughly five days and framed it as an unusual cluster of high-profile technology failures. [https://finance.yahoo.com/markets/currencies/articles/days-microsoft-faa-went-dark-203543642.html](https://finance.yahoo.com/markets/currencies/articles/days-microsoft-faa-went-dark-203543642.html)
+
+**Summary**: The observation is accurate. These are not routine single-point glitches; they are large-scale, high-visibility disruptions affecting core productivity, aviation, and financial systems in a short window. Official explanations point to technical causes (latent bugs, aging infrastructure, upgrade mishaps) rather than coordinated attacks. The concentration is what makes the period stand out.
 
 <br />
 
