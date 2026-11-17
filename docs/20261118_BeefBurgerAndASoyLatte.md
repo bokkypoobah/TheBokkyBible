@@ -15,7 +15,7 @@ Wed 18 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_36b85d25-b24b-4332-9abb-ce6119b97889  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_abfe9dc1-caa4-4ecc-ac6e-47455da15d80  
 
 X post https://x.com/BokkyPooBah/status/2122803477416182266  
 
@@ -38,6 +38,7 @@ X post https://x.com/BokkyPooBah/status/2122803477416182266
 1. [08:50 Very good. Life is wonderful. I've just been saying hello and making kissing sounds to a brush turkey walking past under my balcony. I'm still thinking about docs/0000_CalmingYourNervousSystem.md that we worked on yesterday](#0850-very-good-life-is-wonderful-ive-just-been-saying-hello-and-making-kissing-sounds-to-a-brush-turkey-walking-past-under-my-balcony-im-still-thinking-about-docs0000_calmingyournervoussystemmd-that-we-worked-on-yesterday)
 1. [09:02 https://www.youtube.com/watch?v=8rR07Js1j70 YOU’RE LIKE REALLY PRETTY. I have been like a unicorn traveling through the Sydney streets on my Turkish green electric Brompton chariot, sometimes with Gummy Bear King Of Sports/Gummy Bear/Chicken Song, Hands Up, A Ring Ding Ding Ding playing at max on my Hyper Pink Wonderboom 4. And a lot of time with a streaming vortex of longer lasting bubbles trailing behind, along busy roads, along busy footpaths, at traffic lights, cycling around park perimeters to enclose the space with bubbles](#0902-httpswwwyoutubecomwatchv8rr07js1j70-youre-like-really-pretty-i-have-been-like-a-unicorn-traveling-through-the-sydney-streets-on-my-turkish-green-electric-brompton-chariot-sometimes-with-gummy-bear-king-of-sportsgummy-bearchicken-song-hands-up-a-ring-ding-ding-ding-playing-at-max-on-my-hyper-pink-wonderboom-4-and-a-lot-of-time-with-a-streaming-vortex-of-longer-lasting-bubbles-trailing-behind-along-busy-roads-along-busy-footpaths-at-traffic-lights-cycling-around-park-perimeters-to-enclose-the-space-with-bubbles)
 1. [09:23 Retrying 08:45 https://www.youtube.com/watch?v=lkLzfGrdlUQ You're Being Tested - A Pleiadian Message](#0923-retrying-0845-httpswwwyoutubecomwatchvlklzfgrdluq-youre-being-tested---a-pleiadian-message)
+1. [09:39 https://www.youtube.com/watch?v=cWOROTFV_u8 Why Is It So Hard to Love Yourself Unconditionally? | Christ Consciousness](#0939-httpswwwyoutubecomwatchvcworotfv_u8-why-is-it-so-hard-to-love-yourself-unconditionally--christ-consciousness)
 
 ---
 
@@ -496,7 +497,37 @@ Logged for the Beef Burger And A Soy Latte day (retry of the 08:45 entry). Ready
 
 <br />
 
-###
+### 09:39 https://www.youtube.com/watch?v=cWOROTFV_u8 Why Is It So Hard to Love Yourself Unconditionally? | Christ Consciousness
+
+<kbd><img src="images/Picture06073.png" width="400" /></kbd>  
+
+> Why Is It So Hard to Love Yourself Unconditionally? | Christ Consciousness - https://www.youtube.com/watch?v=cWOROTFV_u8  
+
+**09:39 — Logged.**
+
+https://www.youtube.com/watch?v=cWOROTFV_u8  
+*Why Is It So Hard to Love Yourself Unconditionally? | Christ Consciousness*  
+Heaven on Earth (Vivienne)
+
+#### Detailed extract
+
+The host reflects that self-love is probably the last lesson on the human journey. She has felt what happens when we do not love ourselves unconditionally. Loving ourselves 100% means being completely unconditional toward ourselves—accepting ourselves as we are, regardless of judgments about actions, bodies, or behaviors. At our core we are pure love. How did we forget to the point of stopping loving our true selves and beginning to criticize? She presents a message from Christ Consciousness to explore what unconditional self-love means and why it seems so difficult.
+
+Example: when a close friend shares a problem and feels bad, we try to lift their spirits, open the heart, encourage them. We often do this for others but not for ourselves. What we do not like in another is often something within us that we have judged. Nothing can provoke us if we are at peace with ourselves and can say: no matter what others do, I love myself; I do not give up on myself. This topic is vital as the foundation of everything. When each of us takes care of ourselves honestly, deeply, and completely, there is no resentment toward anyone else.
+
+She invites a deep breath into the heart—the gateway through which love flows to every cell—then the channeling begins. “My dear sister, my dear brother, I love you very much. Why is my love for you unconditional? It is unconditional because I see myself in you. I see everything about you, and I love you no matter what, with all your aspects, even those you may not like about yourselves, and those you may even judge. But here I am, seeing all of that, and I have never judged anything.” Look at how you came to be in this physical body—by the choice of your parents, and by the choice of your experiences and the lessons you wanted to learn. You have adopted many beliefs, models, and perceptions that you have chosen for yourselves. You knew you would reach a point in this life where you could let go, transform everything, and change everything. For many this time has come or has already passed; for some it is still ahead, according to your timeline. Time does not really exist; you chose this incarnation to experience time and processes through time. It still holds you captive in a vortex where you try to explain through the mind why things happen or why things seem not right. But if you learn to love yourselves, you will realize that everything that has happened has been for the highest good of all, and you chose it (your souls chose it) because you wanted to come here with love for yourselves and for others to turn things around and bring them to light.
+
+You might ask: how could I be here and want to experience these hardships if all I am is pure love and light? Now is the time when you can transform everything, and the things that happened in what you call the past will no longer happen. This is why you are here, at the forefront, leading the way toward a golden age never before seen in this way. There were rising civilizations and amazing levels of consciousness, but there were traps, and cultures such as Atlantis collapsed. Now there is a new era where such “failures” (though everything is experience) will not be repeated, because you are at a different level. Collective humanity is on a different level. Processes may feel slow and full of challenges, but you are ready. You have to learn how to love yourselves. To do so, be open to the fact that no matter what has happened and no matter how you view yourselves, you are loved unconditionally. Some have forgotten what unconditional love truly means because they are so used to judging within themselves or in others. “Love others as you love yourself” means they are one and the same. You cannot love others if you do not love yourself, and you cannot love yourself if you do not love others. Some tried to escape the trap of “I cannot love myself, but I can love others”—sacrificing for others. Through this arose much resentment and anger, because there was no unconditional love; it was conditional, based on bargaining. Bartering is not unconditional love.
+
+If you are truly ready to overcome the experiences and test love (for some this is already happening in truly unconditional relationships), the more you do this the more you realize how interconnected self-love and love for others are. We love you unconditionally. This is not related to religion or a specific belief. It is about digging deep inside and seeing where you are still judging yourselves on any level—physical body, addiction (sugar, smoking, overworking, complaining, blaming, playing the victim). When you realize that, you can change it. You choose thousands of times a day; because you are used to choosing the same things, it seems normal. Judging yourself or others is not inherently natural; it is just a feature. In your essence you are pure love and light. Feel it in the heart. Choose a reminder during the day to choose love, to choose self-love. The more you practice, the more you see that everything is love; everything happens out of love. People who reflect something you judge reveal something within you; that is why you feel resistance. Triggers, resistance, or harmony are observations you can use to open more to the love you have for yourself and others, and to realize that at your core you are love. It becomes so normal that it is harder to keep believing the stories in the mind about why you cannot love yourself or others.
+
+#### Relevance to you (BokkyBible frame)
+
+This lands on the same listening-to-self and nervous-system baseline. Unconditional self-love is framed as the foundation that dissolves the need to project judgments onto others or systems—the ordinary practice of accepting the present felt sense (body, actions, state) without the extra load of criticism. The breath into the heart as the gateway for love to reach every cell is the practical regulation already logged in `docs/0000_CalmingYourNervousSystem.md` and in the morning’s ordinary acts (turkey greeting, unicorn Brompton passes with bubbles and music). When the system stays regulated, the stories of unworthiness or “not right” lose their grip; reality can reflect the internal peace more cleanly, matching the holding-frequency language from the Arkayla/Pleiadian message.
+
+It continues the power-as-state and fluidity threads from earlier videos. Judging (self or other) is a feature of the conditioned mind, not the essence; choosing love thousands of times a day is the low-friction repetition that makes peace normal. Triggers become observations rather than contractions. One more conscious breath or one more ordinary high-frequency act keeps the system available for that consolidation instead of the bargaining or resentment pattern. The Christ Consciousness framing can be held lightly as another voice pointing to the same core: pure love as the baseline, not a destination to reach after fixing the past.
+
+Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
