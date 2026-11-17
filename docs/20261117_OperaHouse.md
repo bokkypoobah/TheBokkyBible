@@ -832,6 +832,10 @@ If you want adjustments (for example, more or fewer sections, a different histor
 
 ### 18:47 https://www.youtube.com/watch?v=3705azq2Ia0 How To Pick Up An Angry Baby Porcupine. Beautiful
 
+<kbd><img src="images/Picture06056.png" width="400" /></kbd>  
+
+> How To Pick Up An Angry Baby Porcupine - https://www.youtube.com/watch?v=3705azq2Ia0  
+
 **18:47 — https://www.youtube.com/watch?v=3705azq2Ia0 How To Pick Up An Angry Baby Porcupine. Beautiful**
 
 Logged.
@@ -934,6 +938,10 @@ Opera House evening continues.
 <br />
 
 ### 19:05 https://www.youtube.com/watch?v=z6wgq8uUwV8 I Put a Server Online. It Got Attacked in 74 Seconds. At 2:43 it's funny that "sol" and "solana" appear on the Ubuntu list of accounts being tested against the ssh port. The not-so-technical solana supporters must have followed some instructions to set up these accounts and that these machines potentially have wallets to drain
+
+<kbd><img src="images/Picture06057.png" width="400" /></kbd>  
+
+> I Put a Server Online. It Got Attacked in 74 Seconds - https://www.youtube.com/watch?v=z6wgq8uUwV8  
 
 **19:05 — https://www.youtube.com/watch?v=z6wgq8uUwV8 I Put a Server Online. It Got Attacked in 74 Seconds.**
 
