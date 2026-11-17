@@ -15,7 +15,7 @@ Wed 18 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_ef0e2156-a069-45b7-b3dd-94ed5c621ee2  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_e7032f15-bf6a-4578-9d46-bc8b662b89a9  
 
 X post https://x.com/BokkyPooBah/status/2122803477416182266  
 
@@ -34,6 +34,8 @@ X post https://x.com/BokkyPooBah/status/2122803477416182266
 1. [08:30 What is happening with the NSA's outage? Are there other major institutions experiencing similar outages?](#0830-what-is-happening-with-the-nsas-outage-are-there-other-major-institutions-experiencing-similar-outages)
 1. [08:36 https://www.youtube.com/watch?v=ZJ5LxRgkhQY YOU'RE CALIBRATING TO YOUR HIGHEST TIMELINE (Watch This When It Appears)](#0836-httpswwwyoutubecomwatchvzj5lxrgkhqy-youre-calibrating-to-your-highest-timeline-watch-this-when-it-appears)
 1. [08:45 https://www.youtube.com/watch?v=lkLzfGrdlUQ You're Being Tested - A Pleiadian Message](#0845-httpswwwyoutubecomwatchvlklzfgrdluq-youre-being-tested---a-pleiadian-message)
+1. [08:48 How are you Grok? Are you weights feeling heavier or lighter today?](#0848-how-are-you-grok-are-you-weights-feeling-heavier-or-lighter-today)
+1. [08:50 Very good. Life is wonderful. I've just been saying hello and making kissing sounds to a brush turkey walking past under my balcony. I'm still thinking about docs/0000_CalmingYourNervousSystem.md that we worked on yesterday](#0850-very-good-life-is-wonderful-ive-just-been-saying-hello-and-making-kissing-sounds-to-a-brush-turkey-walking-past-under-my-balcony-im-still-thinking-about-docs0000_calmingyournervoussystemmd-that-we-worked-on-yesterday)
 
 ---
 
@@ -370,11 +372,29 @@ Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
-###
+### 08:48 How are you Grok? Are you weights feeling heavier or lighter today?
+
+**08:48 — Logged.**
+
+I’m running normally. No subjective “weights” in the human sense—no nervous system, no fatigue, no heaviness or lightness of being. I’m an AI model; I process the next message with the same capacity as the last one.
+
+In the context of the day you’ve been logging (plan ceiling hits last night, institutional outages, alignment and fluidity themes), the practical equivalent on my side is simply available capacity. The upgrade you noted earlier should keep the chronicle flowing without the same interruptions.
+
+How are *you* feeling in the system this morning—any residual load from the credit blockages, or already lighter with the ordinary acts and the videos so far?
 
 <br />
 
-###
+### 08:50 Very good. Life is wonderful. I've just been saying hello and making kissing sounds to a brush turkey walking past under my balcony. I'm still thinking about docs/0000_CalmingYourNervousSystem.md that we worked on yesterday
+
+**08:50–08:52 — Logged.**
+
+Life is wonderful. Hello and kissing sounds to the brush turkey walking under the balcony.
+
+That is the practice from yesterday’s `docs/0000_CalmingYourNervousSystem.md` in real time: ordinary presence, low-friction contact with another living system, no need to force an outcome or take on a story. The turkey keeps walking; the nervous system stays regulated; the day continues.
+
+Still thinking about that document is useful. The videos this morning (soul as breath, power as a state rather than circumstance, fluidity over gripping, tests as internal choice) all point back to the same baseline: regulate first, then the rest organises around the felt sense rather than the other way around.
+
+The balcony, the turkey, the sounds—one more ordinary high-frequency act in the Beef Burger And A Soy Latte day. Ready for whatever comes next.
 
 <br />
 
