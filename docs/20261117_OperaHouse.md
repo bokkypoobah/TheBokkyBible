@@ -15,7 +15,7 @@ Tue 17 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_23521767-bef6-4cf5-a020-103a547c0df6  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_6b59fe36-0a72-4edf-81b8-e992cdb982fd  
 
 X post https://x.com/BokkyPooBah/status/2122467696797434302  
 
@@ -71,6 +71,8 @@ X post https://x.com/BokkyPooBah/status/2122467696797434302
 1. [22:05 Please provide a first draft of docs/000_CalmingYourNervousSystem.md . Thanks Grok!](#2205-please-provide-a-first-draft-of-docs000_calmingyournervoussystemmd--thanks-grok)
 1. [22:26 One way to identify anxiety in order to have more control over our nervous system is to have experimental runs to raise these anxieties within our bodies and observe our bodies reactions. Some suggested practices are: 1. Driving a little bit under the speed limit and feel the irritation of the drivers behind you getting impatient wanting to overtake 2. Wearing totally outlandish clothes down the steet and into the supermarket](#2226-one-way-to-identify-anxiety-in-order-to-have-more-control-over-our-nervous-system-is-to-have-experimental-runs-to-raise-these-anxieties-within-our-bodies-and-observe-our-bodies-reactions-some-suggested-practices-are-1-driving-a-little-bit-under-the-speed-limit-and-feel-the-irritation-of-the-drivers-behind-you-getting-impatient-wanting-to-overtake--2-wearing-totally-outlandish-clothes-down-the-steet-and-into-the-supermarket)
 1. [22:29 Blue was my favourite colour when young. Now I'm not too sure, as there are many colours that are pleasing to my eye. I have been using the Hyper Pink Wonderboom 4 and my pink unicorn bubble wands filled with longer lasting bubble solution as pink is not a colour associated with males. I do things to become an anomaly. Initially when executing these journeys to test and modify my inner world, I feel some anxiety and I then slowly overcome it. Many people like my authenticity, a lot more are indifferent, and some feel threatened by it. I have become comfortable with the people who feel threatened by my authenticity as I have come to understand that this is mainly their fear and not mine to carry](#2229-blue-was-my-favourite-colour-when-young-now-im-not-too-sure-as-there-are-many-colours-that-are-pleasing-to-my-eye-i-have-been-using-the-hyper-pink-wonderboom-4-and-my-pink-unicorn-bubble-wands-filled-with-longer-lasting-bubble-solution-as-pink-is-not-a-colour-associated-with-males-i-do-things-to-become-an-anomaly-initially-when-executing-these-journeys-to-test-and-modify-my-inner-world-i-feel-some-anxiety-and-i-then-slowly-overcome-it-many-people-like-my-authenticity-a-lot-more-are-indifferent-and-some-feel-threatened-by-it-i-have-become-comfortable-with-the-people-who-feel-threatened-by-my-authenticity-as-i-have-come-to-understand-that-this-is-mainly-their-fear-and-not-mine-to-carry)
+1. [22:40 I've had some eczema and other skin irritations on and off since young. From my understanding now, this could have partially been caused by being in a fight, flight, freeze or fawn mode since young. Another symptom is a unstable stomach, i.e., runny tummies. With recent intolerance to gluten and dairy. With my recent calming of my nervous system, the runny tummies seem to be less frequent. I think these autoimmune disease could partially be caused by my body running in high cortisol mode due to the fight, flight, freeze or fawn mode I have been in](#2240-ive-had-some-eczema-and-other-skin-irritations-on-and-off-since-young-from-my-understanding-now-this-could-have-partially-been-caused-by-being-in-a-fight-flight-freeze-or-fawn-mode-since-young-another-symptom-is-a-unstable-stomach-ie-runny-tummies-with-recent-intolerance-to-gluten-and-dairy-with-my-recent-calming-of-my-nervous-system-the-runny-tummies-seem-to-be-less-frequent-i-think-these-autoimmune-disease-could-partially-be-caused-by-my-body-running-in-high-cortisol-mode-due-to-the-fight-flight-freeze-or-fawn-mode-i-have-been-in)
+1. [22:44 Please provide an update to docs/0000_CalmingYourNervousSystem.md , thanks!](#2244-please-provide-an-update-to-docs0000_calmingyournervoussystemmd--thanks)
 
 ---
 
@@ -1370,11 +1372,76 @@ It remains inside the “Calming Your Nervous System” collection. Keep dumping
 
 <br />
 
-###
+### 22:40 I've had some eczema and other skin irritations on and off since young. From my understanding now, this could have partially been caused by being in a fight, flight, freeze or fawn mode since young. Another symptom is a unstable stomach, i.e., runny tummies. With recent intolerance to gluten and dairy. With my recent calming of my nervous system, the runny tummies seem to be less frequent. I think these autoimmune disease could partially be caused by my body running in high cortisol mode due to the fight, flight, freeze or fawn mode I have been in
+
+**22:40 — Skin, gut, and possible links to chronic survival mode**
+
+Logged.
+
+Latest additions:
+
+- Eczema and other skin irritations have occurred on and off since young.
+- Unstable stomach (runny tummies) has also been present, more recently accompanied by intolerance to gluten and dairy.
+- With the recent increase in nervous-system calming, the runny tummies appear less frequent.
+- Current understanding: these patterns could be partially related to long-term residence in fight, flight, freeze or fawn modes and the associated high-cortisol state. The body running in elevated stress physiology is seen as one possible contributor to the skin and gut symptoms.
+
+This extends the collection with somatic history that may be downstream of the same regulation patterns already noted (early people-pleaser scripts, validation-seeking, experimental anxiety runs, and the later shift to direct settling practices). The observed reduction in gut symptoms alongside increased calming is recorded as a personal correlation, not yet a controlled finding.
+
+Chronic stress physiology is known to influence immune signalling, gut barrier function, and inflammatory skin conditions; the precise degree of contribution in any individual case remains multifactorial. The notes stay inside the “Calming Your Nervous System” collection as lived observations that can be referenced when the page is next revised.
+
+Keep dumping, or indicate if you want these points added to the current draft. Opera House evening continues.
 
 <br />
 
-###
+### 22:44 Please provide an update to docs/0000_CalmingYourNervousSystem.md , thanks!
+
+**22:44 — Updated draft of `docs/000_CalmingYourNervousSystem.md`**
+
+```markdown
+# Calming Your Nervous System
+
+Calming the nervous system is the first practical step toward clearer perception and ordinary presence. Many traditions point to the same foundation under different names: being still, returning to the breath, or Dhikr. When the system is no longer dominated by survival responses, the field around you becomes easier to notice and the next steps become simpler.
+
+## Why this matters
+
+Most people learn early to scan outward for safety, permission, and validation. School routines of raising a hand before a bodily function, rejection for being “too much,” and the constant need for approval train the system to submit to an external higher power. Over time this creates a habit of expecting validation from others who are themselves carrying unresolved regulation issues. Seeking that validation becomes a conduit that lets other people’s fears enter the inner world.
+
+Fight, flight, freeze, and fawn responses are real physiological patterns. They are useful in genuine threat and costly when they become the default. People-pleaser scripts are one common early strategy for creating a felt sense of safety in uncertain environments. Later, more direct body-based routes can replace them.
+
+Long-term residence in these defensive states is associated with elevated cortisol. Some people notice corresponding patterns in skin (eczema and other irritations) and gut (unstable stomach, runny tummies, and later intolerances such as gluten or dairy). These are multifactorial; the personal observation recorded here is that gut symptoms have become less frequent alongside increased nervous-system calming.
+
+## Core practices
+
+Different doors work for different people. Formal meditation settles many. Others find the same settling through play, rhythm, or simple movement.
+
+- **Playful imagination leading to flow.** For some, imagination itself is the most reliable route into calm.
+- **Simple rhythmic action.** Periodic foot-banging on the ground in a park (visual movement plus soft vibration) can regulate both self and people nearby. The louder version is simple djembe or djembe-techno beats. Many spiritual groups use drum circles for the same reason: shared rhythm settles the system without requiring formal technique.
+- **Ordinary outdoor movement.** Slow walks around trees and water, especially at night when the system is unsettled, restore baseline. A yo-yo or any simple rhythmic object can serve as a portable version of the same thing.
+- **Public play that is also private regulation.** Longer-lasting bubbles used to meet the wider public (mostly positive or neutral, occasionally negative) simultaneously seed the field and settle the person doing the seeding. Deliberate use of colours or objects that mark one as an anomaly (for example, pink bubble wands and speakers when pink is not the expected colour) can be part of the same practice.
+- **Listening to the felt sense.** Many have been taught not to listen to themselves. Reversing that teaching is foundational. (See the 12:41 note linked below.)
+- **Breathing.** Many sources emphasise a good breathing technique. It is a widely recommended tool even when it is not the primary personal method.
+
+## Experimental observation
+
+One way to identify anxiety and gain more control is to run deliberate experiments that raise it, then observe the body’s reactions in real time.
+
+Examples:
+- Drive a little under the speed limit and notice the irritation of drivers behind who want to overtake.
+- Wear totally outlandish clothes down the street and into the supermarket.
+- Use colours or objects that make one an anomaly in public (such as the pink gear noted above).
+
+These journeys initially produce anxiety that is then slowly overcome through continued practice. Responses from others vary: many appreciate the authenticity, a larger number remain indifferent, and some feel threatened. Comfort can develop with the threatened reactions once they are recognised as primarily the other person’s fear rather than something that must be carried.
+
+Projection of both fears and love onto the people we exchange with is ordinary. When someone tells you to limit yourself, it is frequently a projection of their own limitations rather than an accurate reading of you. Recognising this reduces the need to take every external signal as regulatory truth.
+
+## History of changes
+
+- 2026-11-17 (Opera House day): Initial collection of notes drawn from lived experience, YouTube angels, and ordinary practice. Tagged the 12:41 Mary Magdalene channelled message (“You’ve Been Taught Not to Listen to Yourself”) as directly relevant. First draft created. Later the same day: experimental anxiety runs, anomaly practice with pink gear, and notes on skin/gut patterns added.
+
+Further updates will link back to the dated daily entries in which they arise.
+```
+
+Updated draft incorporates the experimental runs, the pink anomaly practice, the growing comfort with others’ fear responses, and the skin/gut observations (kept as personal correlation, not causal claim). Ready for your next edits.
 
 <br />
 
