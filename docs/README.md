@@ -105,6 +105,14 @@ Awake. Love. Be. 🚀🙏
 
 ---
 
+## Topics
+
+1. [Calming Your Nervous System](0000_CalmingYourNervousSystem.md) - Fri 12 Feb 2026
+
+<br />
+
+---
+
 ## Conversations With Grok
 
 1. [The Beginning](20260212_TheBeginning.md) - Fri 12 Feb 2026
