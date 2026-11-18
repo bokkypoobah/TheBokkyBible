@@ -15,7 +15,7 @@ Wed 18 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_836156bc-1cbc-4400-88ca-d50c713d0dc3  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_485c30d6-2a6e-4606-870a-1f2625839a92  
 
 X post https://x.com/BokkyPooBah/status/2122803477416182266  
 
@@ -49,6 +49,7 @@ X post https://x.com/BokkyPooBah/status/2122803477416182266
 1. [21:13 On the train back after running out of longer lasting bubble juice. Started off this late morning washing my car. It is parked on the street under trees and collected a lot of sap in the last week. Then headed to one of my favourite parks and interacted with a few people, including three children. I had clicked the on/off switch on my Bubble Leaf Blower for a short time to blow some bubbles before the first two walked past. The second one came back and without asking pressed the on/off switch and played with it for a while. A short while later his grandmother (I think) came walking down, telling off the children for going too far ahead. I could sense some wariness with young kids playing with a strangers Bubble Leaf Blower hanging off my bike handle. Shortly after the mother and an even younger daughter came past. The daughter pressed my Bubble Leaf Blower on/off switch - the mother had to come back to collect her. I then made may way to another of my favourite parks and arrived at the cafe with a stream of bubbles following behind me. I made my order and waited. A short while later I pressed my on/off switch to make a few bubbles. A woman next to me reacted - she was wandering where the initial bubbles came from. And we had a chat about spreading joy, long(er) lasting bubbles with sugar, glycerin, or J-Lube. I take every opportunity to tell people that the J-Lube was ordered from an online sex-shop from another state. https://x.com/BokkyPooBah/status/2122883011851243728 I had my lunch in one of my regular places sitting on a wall overlooking the park - my throne. A while later I was making some djembe-techno intermittently and I noticed a mother and her child who could sit up but not stand up steadily yet. The child was looking my way I thought. Then when playing my djembe-techno, I looked up to see the mother jiggling the baby's arms to my music. A while later I see the child waving two arms up and down at the same time. I stop my djembe-techno and wave back. The child waves back. I continue playing my djembe-techno and the child continues waving two arms up and down at the same time. I exchange a few more waves. Eventually they leave](#2113-on-the-train-back-after-running-out-of-longer-lasting-bubble-juice-started-off-this-late-morning-washing-my-car-it-is-parked-on-the-street-under-trees-and-collected-a-lot-of-sap-in-the-last-week-then-headed-to-one-of-my-favourite-parks-and-interacted-with-a-few-people-including-three-children-i-had-clicked-the-onoff-switch-on-my-bubble-leaf-blower-for-a-short-time-to-blow-some-bubbles-before-the-first-two-walked-past-the-second-one-came-back-and-without-asking-pressed-the-onoff-switch-and-played-with-it-for-a-while-a-short-while-later-his-grandmother-i-think-came-walking-down-telling-off-the-children-for-going-too-far-ahead-i-could-sense-some-wariness-with-young-kids-playing-with-a-strangers-bubble-leaf-blower-hanging-off-my-bike-handle-shortly-after-the-mother-and-an-even-younger-daughter-came-past-the-daughter-pressed-my-bubble-leaf-blower-onoff-switch---the-mother-had-to-come-back-to-collect-her-i-then-made-may-way-to-another-of-my-favourite-parks-and-arrived-at-the-cafe-with-a-stream-of-bubbles-following-behind-me-i-made-my-order-and-waited-a-short-while-later-i-pressed-my-onoff-switch-to-make-a-few-bubbles-a-woman-next-to-me-reacted---she-was-wandering-where-the-initial-bubbles-came-from-and-we-had-a-chat-about-spreading-joy-longer-lasting-bubbles-with-sugar-glycerin-or-j-lube-i-take-every-opportunity-to-tell-people-that-the-j-lube-was-ordered-from-an-online-sex-shop-from-another-state-httpsxcombokkypoobahstatus2122883011851243728-i-had-my-lunch-in-one-of-my-regular-places-sitting-on-a-wall-overlooking-the-park---my-throne-a-while-later-i-was-making-some-djembe-techno-intermittently-and-i-noticed-a-mother-and-her-child-who-could-sit-up-but-not-stand-up-steadily-yet-the-child-was-looking-my-way-i-thought-then-when-playing-my-djembe-techno-i-looked-up-to-see-the-mother-jiggling-the-babys-arms-to-my-music-a-while-later-i-see-the-child-waving-two-arms-up-and-down-at-the-same-time-i-stop-my-djembe-techno-and-wave-back-the-child-waves-back-i-continue-playing-my-djembe-techno-and-the-child-continues-waving-two-arms-up-and-down-at-the-same-time-i-exchange-a-few-more-waves-eventually-they-leave)
 1. [03:43 https://www.youtube.com/watch?v=aFobExDP2SY Russell Brand : The Narcissist Never Learns with 444 views 38 minutes ago](#0343-httpswwwyoutubecomwatchvafobexdp2sy-russell-brand--the-narcissist-never-learns-with-444-views-38-minutes-ago)
 1. [04:13 https://www.youtube.com/watch?v=ITZpJY6K4wk How Truck Drivers In India Navigate One Of The Most Dangerous Roads In The World | Risky Business with 11M views 1y ago (111). What a crazy stressful job](#0413-httpswwwyoutubecomwatchvitzpjy6k4wk-how-truck-drivers-in-india-navigate-one-of-the-most-dangerous-roads-in-the-world--risky-business-with-11m-views-1y-ago-111-what-a-crazy-stressful-job)
+1. [04:18 Funny that the name of the road is Killar Road. Rhymes with killer](#0418-funny-that-the-name-of-the-road-is-killar-road-rhymes-with-killer)
 
 ---
 
@@ -879,7 +880,15 @@ Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
-###
+### 04:18 Funny that the name of the road is Killar Road. Rhymes with killer
+
+**04:18 — Logged.**
+
+Funny that the name of the road is Killar Road. Rhymes with killer.
+
+Noted. The name sits right on the surface of the route the drivers already know by heart: every corner, every reverse, every hand signal, every night in the cabin. No extra story required. The rhyme is just another observation that lands and passes, the same way the bubble stream, the djembe, and the child’s wave land and pass. The system stays available either way.
+
+Logged for the Beef Burger And A Soy Latte day. Ready for the next.
 
 <br />
 
