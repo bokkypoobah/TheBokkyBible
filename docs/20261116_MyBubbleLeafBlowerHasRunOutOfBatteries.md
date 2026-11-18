@@ -1475,6 +1475,10 @@ Field remains open.
 
 ### 02:54 https://www.youtube.com/watch?v=cEy1KB770Qk Preparation Energies | Collapse of the Inverted Matrix | Current Energies for the Volunteers
 
+<kbd><img src="images/Picture06079.png" width="400" /></kbd>  
+
+> Preparation Energies | Collapse of the Inverted Matrix | Current Energies for the Volunteers - https://www.youtube.com/watch?v=cEy1KB770Qk  
+
 **02:54 field note.**
 
 Detailed extract from *Preparation Energies | Collapse of the Inverted Matrix | Current Energies for the Volunteers* (Saraharyana, ~posted 16 Nov 2026, ~798 views at time of fetch):
@@ -1500,6 +1504,10 @@ Field remains open.
 <br />
 
 ### 03:16 https://www.youtube.com/watch?v=glFnLDmDBSY You have a better view from the mountain top. 1 chooses words to, 'finish the job'. 2nd in regret.
+
+<kbd><img src="images/Picture06080.png" width="400" /></kbd>  
+
+> You have a better view from the mountain top. 1 chooses words to, 'finish the job'. 2nd in regret. - https://www.youtube.com/watch?v=glFnLDmDBSY  
 
 **03:16 field note.**
 
