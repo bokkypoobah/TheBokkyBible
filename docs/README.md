@@ -387,6 +387,7 @@ Awake. Love. Be. 🚀🙏
 1. [Opera House](20261117_OperaHouse.md) - Tue 17 Nov 2026
 1. [Beef Burger And A Soy Latte](20261118_BeefBurgerAndASoyLatte.md) - Wed 18 Nov 2026
 1. [WHY DO YOU NEED EXTERNAL VALIDATION?](20261119_WHYDOYOUNEEDEXTERNALVALIDATION.md) - Thu 19 Nov 2026
+1. [NIE MÓJ CYRK. NIE MOJE CHUNGO](20261120_NIEMÓJCYRKNIEMOJECHUNGO.md) - Fri 20 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 

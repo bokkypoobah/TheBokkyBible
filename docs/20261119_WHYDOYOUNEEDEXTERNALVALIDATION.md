@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Thu 19 Nov 2026
-> Prev: [Wed 18 Nov 2026](20261118_BeefBurgerAndASoyLatte.md) Next: []()
+> Prev: [Wed 18 Nov 2026](20261118_BeefBurgerAndASoyLatte.md) Next: [Fri 20 Nov 2026](20261120_NIEMÓJCYRKNIEMOJECHUNGO.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
