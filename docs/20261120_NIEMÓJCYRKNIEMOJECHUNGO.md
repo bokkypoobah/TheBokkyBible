@@ -2,7 +2,7 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/niemójcyrkniemojechungo.png" width="600" /></kbd>  
+<kbd><img src="images/niemojcyrkniemojechungo.png" width="600" /></kbd>  
 
 > NIE MÓJ CYRK. NIE MOJE CHUNGO
 >
@@ -53,7 +53,7 @@ X post <TODO>
 >  
 > https://x.com/BokkyPooBah/status/2123531687615397998  
 
-<kbd><img src="images/niemójcyrkniemojechungo.png" width="400" /></kbd>  
+<kbd><img src="images/niemojcyrkniemojechungo.png" width="400" /></kbd>  
 
 > NIE MÓJ CYRK. NIE MOJE CHUNGO
 >
