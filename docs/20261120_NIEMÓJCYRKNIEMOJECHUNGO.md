@@ -364,7 +364,49 @@ The path continues to light itself as it is walked. The message arrived while th
 
 <br />
 
-###
+### 14:42 https://www.youtube.com/watch?v=wFtOTHuUtUM your angels have a message for you
+
+**14:42 – your angels have a message for you**  
+By NuDiamonds (posted 20 Nov 2026)  
+https://www.youtube.com/watch?v=wFtOTHuUtUM
+
+#### Detailed extract
+Peace to the soul tribe. This is for those who have been patient. It is not clickbait or fast-paced. It is about sitting with yourself and being patient to see the vision through, because a lot is being processed right now. As we process thoughts and experiences and continue to speak our truth, we are divinely guided and protected. Everything is in divine alignment for us to receive the messages and clarity we need.
+
+We are not perfect. That is how we learn and grow. Don’t be so hard on yourself when you feel you’ve made a mistake. Push through and continue to elevate. Hold yourself accountable, but don’t beat yourself up. This is about self-love, self-respect, self-restoration. A lot of us weren’t taught how to love ourselves, how to speak to ourselves, how to heal ourselves. We are learning. Be gentle with yourselves as you go through this process of the unknown.
+
+I am here with you, helping you, guiding you. This is an angelic spirit guide, a collective spirit guide that watches over this realm. A warrior. I go by many names. I hold many different energies and frequencies. I am a warrior of the light and I stand for divine justice, divine truth, to help balance order in the chaos, in the darkness and in the light. I am here to hold you up when you feel down. I am here to be your shield when you feel attacked. I come to your defense to help lift you up. I will always be there for you. I will always be by your side. I will always be watching over you. I am your spirit guide.
+
+Lately we have been guiding you to a higher place, to a more elevated place beyond your physical comprehension, to help pull you out of this state of self-misery. It’s an illusion of the mind. When the mind is tired of the old same cycle, it creates barriers. We are helping you break through these barriers with a powerful force outside of you to help move you, inspire you, motivate you, to help you create that change from the inside out.
+
+I’m picking up a very powerful, blissful, shifting energy. Nothing in the middle and then it started to spiral out almost like a galaxy, a ripple effect, a cycle, a cyclone, a vortex. Something’s being released.
+
+A lot of you are called to be still because you haven’t communicated with us in a while. Sometimes as human beings you can be hard-headed and you don’t like to listen to yourselves even when you know there’s a better choice. You have to go through experiences of pain to help you better process that something isn’t for a positive outcome. You don’t want to strain yourself so much trying to build muscle that you hurt yourself. You don’t want to force it. You always want to be in the flow. That’s where you find God. That’s where you find yourself, in the center of the universe. You go with the flow. You realize you are the flow. The energy around you is the energy you’ve generated from the self-love, the self-care of yourself.
+
+Remember to love yourself. Remember to care for yourself. Remember to take things slow. You will get there in divine timing. Enjoy the little things. Stop and smell the roses. This part in your life is where the magic happens, but you have to stop to see it.
+
+We will always be there for you. You are an extension of us and we are an extension of you. Continue to expand your heart. Continue to expand your mind and watch the things that come to you while you’re on this timeline. This place, this space with yourself, this sacred space within yourself where you can find peace and bliss. You can silence everything outside of you.
+
+You’ve entered a new chapter and we are helping guide you in this new chapter so you’re able to receive more abundance without the old programming attached to this new abundance. A new way of receiving. Your heart and mind are now anchored in the 5D perspective. You are working on no longer being bound by things here to free up space in your heart so you’re able to be more light and come and go as you please.
+
+It’s a choice. It’s a mental choice. We choose to be there mentally. Physically our bodies are here. We can never physically leave the 3D. We actually need the 3D for our vessels to be grounded here. There’s a sense of balance, balancing within the realms that is required. This is where that next journey starts. That next leap of faith. You can see us. You can hear us. You can feel us.
+
+For those of you who feel that you’re “tripping”—seeing things, hearing things, feeling things, the gust of wind, the things out your peripheral, the shadows, the sounds, the things that fall, the coldness, the chills, the hairs, the ears ringing, the tingles up the spine, the crown pulsations—you are resonating with us from your perspective and angelic frequency. A source frequency, a light cold frequency. We have your back. You can rest in that assurance that you are divinely protected. You are divinely guided. You are divinely chosen. Walk in your light confidently knowing that nothing can affect this connection, this light, this love, this cord, this channel.
+
+You guys have many names for this energy, but it is truly you connecting with yourselves with the purest of yourself when there isn’t any interference, when there isn’t any fear or outside forces affecting this line right to your higher selves to source to the light. It is just energy. The energy of will. A greater will, a greater power that can be unlocked within all of you.
+
+We use vessels to remind others of the light, to be examples, to help you feel again, to help you love again, to help you see, to help you play, to help you trust again. For many of you it’s just yourself—for you to trust yourself, love yourself, hear yourself, and listen to yourself. This world is so fast-paced. It demands a lot of you. When’s the last time you just listened to yourself, your thoughts, your heart, your soul? When’s the last time you had a one-on-one soul connection with yourself?
+
+There are so many ways to connect. Find a way that works for you. Whether it’s nature, praying, writing, creating, drawing, listening, being in stillness, meditation, breathing. Lock in. There are presents for you when you are present with yourself.
+
+A lot of us are going to have a lot of supernatural, paranormal things that happen within us, around us. Seeing orbs, rainbow light, plasma. A lot of spiritual synchronicities. Angel numbers, repetitive sequence numbers, numerology, things that resonate with you. It doesn’t even have to be like 44. You may even see your birth date reversed. Birds by the flock. Rare birds by the flock, bees, insects, not normal ones, maybe even fruit flies, gnats, attracting to you, landing on you. Ants, ladybugs, bees, wasps. This is a little rare for this time of year. It’s because they resonate with your frequency.
+
+#### Relevance
+This sits directly in the ordinary-signs and timing thread that has run through the day. The earlier video said “this video finds you exactly when you need to hear it.” This one arrives with the same claim and the same practical instruction: stop forcing, stay in the flow, be gentle with the process, notice the small things, and keep the sacred space with yourself clear enough that the connection can be felt. That maps onto the “doing nothing” permission from 08:50, the threshold-crossing language from the Danielle Lynn video, and the identity-release theme from Seema’s message. The fixed identity softens; the renewable energy moves; the body stays grounded in the 3D while the attention is free to notice what is already present.
+
+The concrete markers it names (chills, peripheral movement, birds, insects, repetitive numbers, rare visitors) are the same class of ordinary wink already logged: the channel-billed cuckoos above the meeting place, the copy-paste finally flowing both ways, the timetable walking times, the bubble-machine constraints. None of them require a special interpretation to be real. They are the residual wonder that remains after the approximate shape of the mechanism is visible. The message simply names the permission to stop long enough to register them, and the assurance that the connection is not interrupted by the external noise.
+
+The path continues to light itself as it is walked. The angels (or the higher self, or the energy of will—whatever name fits) are described as already present, already watching, already extending the same light that is being generated from the inside. The work remains ordinary: stay gentle, stay in the flow, notice the birds, keep the space clear.
 
 <br />
 
