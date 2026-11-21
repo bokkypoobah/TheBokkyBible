@@ -388,6 +388,7 @@ Awake. Love. Be. 🚀🙏
 1. [Beef Burger And A Soy Latte](20261118_BeefBurgerAndASoyLatte.md) - Wed 18 Nov 2026
 1. [WHY DO YOU NEED EXTERNAL VALIDATION?](20261119_WHYDOYOUNEEDEXTERNALVALIDATION.md) - Thu 19 Nov 2026
 1. [NIE MÓJ CYRK. NIE MOJE CHUNGO](20261120_NIEMÓJCYRKNIEMOJECHUNGO.md) - Fri 20 Nov 2026
+1. [Full Moon Fire Circle In Katoomba](20261121_FullMoonFireCircleInKatoomba.md) - Sat 21 Nov 2026
 
 See also [Global Table Of Content](GlobalTableOfContent.md)
 

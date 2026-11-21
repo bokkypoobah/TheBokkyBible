@@ -15,7 +15,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 20 Nov 2026
-> Prev: [Thu 19 Nov 2026](20261119_WHYDOYOUNEEDEXTERNALVALIDATION.md) Next: []()
+> Prev: [Thu 19 Nov 2026](20261119_WHYDOYOUNEEDEXTERNALVALIDATION.md) Next: [Sat 21 Nov 2026](20261121_FullMoonFireCircleInKatoomba.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
