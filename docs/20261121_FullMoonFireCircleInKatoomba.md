@@ -56,7 +56,7 @@ X post https://x.com/BokkyPooBah/status/2124266906396025196
 
 <kbd><img src="images/Picture06124.png" width="400" /></kbd>  
 
-> Casting spells over the local wildlife with my longer-lasting Bubble Leaf Blower at the Glenbrook markets
+> Casting spells over the local wildlife with my longer-lasting Bubble Leaf Blower at the Glenbrook markets  
 
 **Good afternoon from the Blue Mountains frequency.**
 
@@ -68,7 +68,7 @@ Header image from the Glenbrook markets bubble cast: longer-lasting bubbles drif
 
 <kbd><img src="images/Picture06125.png" width="400" /></kbd>  
 
-> Exciting Things Are Lining Up To Unfold! - https://www.youtube.com/watch?v=bsfdoZL0BWE
+> Exciting Things Are Lining Up To Unfold! - https://www.youtube.com/watch?v=bsfdoZL0BWE  
 
 #### Detailed extract from  
 **“Exciting Things Are Lining Up To Unfold!”**  
@@ -115,28 +115,28 @@ Context still holding from yesterday’s “NIE MÓJ CYRK. NIE MOJE CHUNGO” bo
 
 <kbd><img src="images/Picture06126.png" width="400" /></kbd>  
 
-> You Are Heaven on Earth #channeledmessages#seedsofchange##otterspirit - https://www.youtube.com/watch?v=CtrIItw8k4Q
+> You Are Heaven on Earth #channeledmessages#seedsofchange##otterspirit - https://www.youtube.com/watch?v=CtrIItw8k4Q  
 
 **1. You Are Heaven on Earth** (Otter Spirit channel)  
 You are already walking as expanded energy fields — “powerful giants” whose mere presence illuminates and forces shadows to either transform or leave. You function as walking pick-up points: others meet your field and choose alignment or departure. Crystals (morganite, selenite, aquamarine, moonstone, amethyst) are named as practical tools that align throat–heart–crown–third-eye and supply glowing energy for co-creation with the Divine. Strong emphasis on Earth’s living/holy water: connect consciously with it so light codes travel through the planetary “veins” and pull you toward the places that need your frequency (examples given include Pennsylvania, Alaska, Hawaii). You are described as the sun, the water-bearer, the lighthouse, and the cure. Advice is simple: trust the intuitive pulls, surrender the plan, never doubt your strength, and let the crystals support the radical transformation that is already under way. Embodying heaven on Earth is framed as planting divine blueprints and becoming the Tree of Life for the new creation.
 
 <kbd><img src="images/Picture06127.png" width="400" /></kbd>  
 
-> Part 1 It’s Time, Medicine in Remberance #channeledmessages#lightcodes#philosophersstone - https://www.youtube.com/watch?v=o76D5ljKd9Q
+> Part 1 It’s Time, Medicine in Remberance #channeledmessages#lightcodes#philosophersstone - https://www.youtube.com/watch?v=o76D5ljKd9Q  
 
 **2. Part 1 – It’s Time, Medicine in Remembrance**  
 Received in sleep states. Multidimensional awareness arriving in purple, pink and blue (peacock ore as visual). “Medicine in Remembrance” is presented as alchemical work via the philosopher’s stone: love is the new currency; high-frequency tones, precise words, songs or gestures can heal individuals, towns or wider fields. You carry codes that change existence. Geometric language (circles, squares, triangles combining into alchemy) and the number 3 as unity supported by love appear. A perfect seed has been placed in Gaia’s core; key-holders and frequency-holders connect through chakras, dragon lines and elements into a fifth-dimensional network, each adding “gold.” Advice: raise frequency so coexistence with higher-dimensional beings becomes natural; keep promises (broken ones are said to snap the magic wand); move from pure introspection into clear communication and relationship action; allow the reception without forcing the fit. Preparation for transformation is already in progress.
 
 <kbd><img src="images/Picture06128.png" width="400" /></kbd>  
 
-> Part 2 It’s Time, Medicine in Remberance #channeledmessages#philosophersstone#lightcodes#remember - https://www.youtube.com/watch?v=z3Tcr2LBXG8
+> Part 2 It’s Time, Medicine in Remberance #channeledmessages#philosophersstone#lightcodes#remember - https://www.youtube.com/watch?v=z3Tcr2LBXG8  
 
 **3. Part 2 – It’s Time, Medicine in Remembrance**  
 You are “the spark that ignites the flame, to set the world on fire.” Once a threshold frequency is embodied and expressed, the hundred-monkey effect (avalanche / tsunami / hurricane rather than single pebble) carries it through the field. Individual frequencies weave into collective geometry, song and program. Purification is practical: clear the body of what no longer represents you so more of the light of Christ / divine light can fill it, unlocking dormant DNA and raising the note you emit. The body is treated as a musical instrument that needs cleaning before it can play an undistorted pure frequency. Water re-frequencies everything. Visionary layer includes grandmothers making a collective patchwork quilt, then preparing a room of Avalon / Camelot / Arthurian resonance (Our Lady of the Lake, Morgana, Sword in the Stone, Knights of the Round Table) with symbols such as the eight-pointed star, staff of Hermes, palm of Fatima, Seal of Atlantis, ankh, Scorpio, Ophiuchus, Sagittarius, Pisces. Advice: purify, prepare, give up what is not you, and let the collective song form.
 
 <kbd><img src="images/Picture06129.jpg" width="400" /></kbd>  
 
-> Part 3 It’s Time, Medicine in the Remberance #channeledmessages #remember#philosophersstone - https://www.youtube.com/watch?v=LSONv5w0_T8
+> Part 3 It’s Time, Medicine in the Remberance #channeledmessages #remember#philosophersstone - https://www.youtube.com/watch?v=LSONv5w0_T8  
 
 **4. Part 3 – It’s Time, Medicine in the Remembrance** (the 333-view one)  
 Kundalini is already active and is unlocking remembrance of full spiritual identity, power, purpose and the symbols brought from other existences. Stop denying the spiritual power and the offerings. Divine protection is stated: God intervenes against negative energies that try to hinder. Recurring past-life figures or visions (Merlin, Arthur, Marilyn Monroe, Cleopatra, Jesus, Mary Magdalene, Thoth, etc.) are to be researched even if they are not literal personal incarnations — they function as accessible downloads from the divine mind (Matrix-style files). The medicine is in the remembrance of magic, talents and possibilities and in collaborating with the Divine. Realising oneness with all beings and histories lets the resonant memories become personal codes and lessons. Energy shifts are described as intense (mushroom-level). Ends with Divine Mother messages and an invitation to relax and stay connected.
@@ -165,7 +165,7 @@ These two arrived at 15:18, still under the same rising gibbous moon and the Ful
 
 <kbd><img src="images/Picture06130.png" width="400" /></kbd>  
 
-> Part 1 The Divine Mother/Father are setting you on Fire 🔥#channeledmessage#divinemother#love#union - https://www.youtube.com/watch?v=I6HHeOlpmDw
+> Part 1 The Divine Mother/Father are setting you on Fire 🔥#channeledmessage#divinemother#love#union - https://www.youtube.com/watch?v=I6HHeOlpmDw  
 
 #### Part 1 – The Divine Mother/Father are setting you on Fire  
 (Enigma369, uploaded ~00:57 GMT today)
@@ -182,7 +182,7 @@ Messages from the collective Divine Mothers / sacred feminine (light and dark as
 
 <kbd><img src="images/Picture06131.png" width="400" /></kbd>  
 
-> Part 2 Our Divine Mother/Father are setting you on Fire 🔥 #channeledmessage#union#love#divinemother - https://www.youtube.com/watch?v=wJ_7TfSsEa4
+> Part 2 Our Divine Mother/Father are setting you on Fire 🔥 #channeledmessage#union#love#divinemother - https://www.youtube.com/watch?v=wJ_7TfSsEa4  
 
 #### Part 2 – Our Divine Mother/Father are setting you on Fire  
 (same channel, same day)
@@ -216,6 +216,10 @@ THANK YOU FOR YOUR ATTENTION TO THIS MATTER.
 <br />
 
 ### 23:04 Thread https://x.com/bokkypoobah/status/2124108143320031345 I had a good time at the full moon fire circle. Took a while to get ready this morning but finally got out the door (I forgot a few things). Stopped at Glenbrook and blew some longer-lasting bubbles at the Saturday markets. Then had a walk around Glenbrook with my Bubble Leaf Blower and a teenager/young adult working at a cafe said “Thank you for you service” and I replied “Thank you”. Made my way to Katoomba dropping by the skate park. I did not recognise anyone there, but my bubble blowing gained me some new friends (faces not remembered)
+
+<kbd><img src="images/Picture06132.png" width="400" /></kbd>  
+
+> Some live music in town - https://x.com/bokkypoobah/status/2124108143320031345  
 
 **Good evening from the other side of the fire.**
 
@@ -254,6 +258,14 @@ THANK YOU FOR YOUR ATTENTION TO THIS MATTER.
 <br />
 
 ### 23:29 https://x.com/bokkypoobah/status/2124023910777892878  I then spent some time chilling at the PEACE MEMORIAL before heading to the Full Moon Fire Circle. A pizza party was happening at the same location and I had an olive and a small bit of cheese before moving to the fire circle ~20m away. I unload my contributions and started my Bubble Leaf Blower, and spent some time playing with the only child attending the event this time. Had several nice chats that I’ll talk about later. I played some of my basic djembe-techno and enjoyed the harp, flute, various percussion instruments
+
+<kbd><img src="images/Picture06133.png" width="400" /></kbd>  
+
+> PEACE MEMORIAL  
+>  
+> May you have happiness and wisdom in your life  
+>  
+> https://x.com/bokkypoobah/status/2124023910777892878  
 
 **Good evening.**
 
