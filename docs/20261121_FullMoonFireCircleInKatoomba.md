@@ -11,7 +11,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sat 21 Nov 2026
-> Prev: [Fri 20 Nov 2026](20261120_NIEMÓJCYRKNIEMOJECHUNGO.md) Next: []()
+> Prev: [Fri 20 Nov 2026](20261120_NIEMÓJCYRKNIEMOJECHUNGO.md) Next: [Sun 22 Nov 2026](20261122_SEFORMÓTREMENDOARROZCONCHUNGO.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
