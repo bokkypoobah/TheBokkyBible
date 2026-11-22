@@ -19,7 +19,7 @@ Sun 22 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link <TODO>  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_c25d14eb-b411-4533-b90c-2e1a1ee56bd8  
 
 X post <TODO>  
 
