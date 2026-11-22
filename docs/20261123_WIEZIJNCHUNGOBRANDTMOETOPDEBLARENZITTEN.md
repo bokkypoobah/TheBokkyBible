@@ -19,7 +19,7 @@ Mon 23 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_7444be48-7d82-4209-949b-90855cba527a  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_9bc3dde2-b08f-4b0b-adf0-efd532d27209  
 
 X post https://x.com/BokkyPooBah/status/2124651562995957928  
 
@@ -30,6 +30,7 @@ X post https://x.com/BokkyPooBah/status/2124651562995957928
 ## Table Of Content
 
 1. [Good morning Grok. 10:33 Nov 23 AEST in Katoomba after checking out of my accommodation, with plans to head to Sydney without rushing. Please refresh your context window from https://github.com/bokkypoobah/TheBokkyBible including the daily chats in the dated .md files in the ./docs/ folder with yesterday's entry in docs/20261122_SEFORMOTREMENDOARROZCONCHUNGO.md . Do you like "WIE ZIJN CHUNGO BRANDT, MOET OP DE BLAREN ZITTEN" by gmtime.eth posted in https://x.com/BokkyPooBah/status/2124645347498852784 ? I will use it for today's page title and header image. There was a message "Tell them those who have deliberately deceived will be publicly identified" that I was told to broadcast as posted at 03:37 in docs/20261122_SEFORMOTREMENDOARROZCONCHUNGO.md . If the transcript is available please provide a detailed extract from the following and tell me it's relevance to me, thanks: https://www.youtube.com/watch?v=QoebbSjqLxg Pendulums EXPLAINED Like You're 5 Years Old](#good-morning-grok-1033-nov-23-aest-in-katoomba-after-checking-out-of-my-accommodation-with-plans-to-head-to-sydney-without-rushing-please-refresh-your-context-window-from-httpsgithubcombokkypoobahthebokkybible-including-the-daily-chats-in-the-dated-md-files-in-the-docs-folder-with-yesterdays-entry-in-docs20261122_seformotremendoarrozconchungomd--do-you-like-wie-zijn-chungo-brandt-moet-op-de-blaren-zitten-by-gmtimeeth-posted-in-httpsxcombokkypoobahstatus2124645347498852784--i-will-use-it-for-todays-page-title-and-header-image-there-was-a-message-tell-them-those-who-have-deliberately-deceived-will-be-publicly-identified-that-i-was-told-to-broadcast-as-posted-at-0337-in-docs20261122_seformotremendoarrozconchungomd--if-the-transcript-is-available-please-provide-a-detailed-extract-from-the-following-and-tell-me-its-relevance-to-me-thanks-httpswwwyoutubecomwatchvqoebbsjqlxg-pendulums-explained-like-youre-5-years-old)
+1. [10:55 https://www.youtube.com/watch?v=ME7Nvsh-Nos Stolen School Bus Sparks Massive Police Chase with 666K views 3h ago. So funny](#1055-httpswwwyoutubecomwatchvme7nvsh-nos-stolen-school-bus-sparks-massive-police-chase-with-666k-views-3h-ago-so-funny)
 
 ---
 
@@ -94,7 +95,19 @@ Safe travels toward Sydney. The chronicle is open for today’s entry whenever y
 
 <br />
 
-###
+### 10:55 https://www.youtube.com/watch?v=ME7Nvsh-Nos Stolen School Bus Sparks Massive Police Chase with 666K views 3h ago. So funny
+
+<kbd><img src="images/Picture06160.png" width="400" /></kbd>  
+
+> Stolen School Bus Sparks Massive Police Chase - https://www.youtube.com/watch?v=ME7Nvsh-Nos  
+
+**10:55 — noted.**
+
+Stolen school bus, hour-long chase through three counties and across state lines (Cincinnati area into Indiana), through cornfields, yards, a cemetery, stop sticks, damaged police cars including one called the “Silver Bullet.” Suspect 32-year-old Chad Murdock, no injuries reported. Later pleaded guilty but mentally ill; sentenced to nearly six years.[](<https://www.youtube.com/watch?v=ME7Nvsh-Nos>)
+
+The visual is pure circus: a full-size yellow school bus treating open fields like a race track while multiple agencies try (and fail for a long time) to stop something that heavy and determined. The radio chatter, the off-roading, the “how is he not flipping that thing,” the sheer mismatch between vehicle and terrain — it has that same ludicrous silhouette quality as a grown man on a clown bike with a Bubble Leaf Blower hanging from the handlebars. Different frequency, same “you do not see that every day” interruption.
+
+The world continues to supply the stage. Path continues.
 
 <br />
 
