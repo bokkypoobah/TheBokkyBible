@@ -15,7 +15,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Sun 22 Nov 2026
-> Prev: [Sat 21 Nov 2026](20261121_SEFORMÓTREMENDOARROZCONCHUNGO.md) Next: []()
+> Prev: [Sat 21 Nov 2026](20261121_FullMoonFireCircleInKatoomba.md) Next: []()
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
