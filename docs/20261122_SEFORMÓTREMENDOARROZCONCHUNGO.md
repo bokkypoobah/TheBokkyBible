@@ -2,7 +2,7 @@
 
 And other matters of vast importance.
 
-<kbd><img src="images/seformótremendoarrozconchungo.png" width="600" /></kbd>  
+<kbd><img src="images/seformotremendoarrozconchungo.png" width="600" /></kbd>  
 
 > ¡SE FORMÓ TREMENDO ARROZ CON CHUNGO!  
 >  
@@ -45,7 +45,7 @@ X post <TODO>
 >  
 > https://x.com/BokkyPooBah/status/2124298593683268078  
 
-<kbd><img src="images/seformótremendoarrozconchungo.png" width="400" /></kbd>  
+<kbd><img src="images/seformotremendoarrozconchungo.png" width="400" /></kbd>  
 
 > ¡SE FORMÓ TREMENDO ARROZ CON CHUNGO!  
 >  
