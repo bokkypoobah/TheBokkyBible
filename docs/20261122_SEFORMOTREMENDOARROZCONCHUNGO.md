@@ -97,6 +97,10 @@ Yes — it works well as today’s page title and header image. The post (by Poo
 
 “Chungo” is Spanish slang (from Caló/Romani roots) for dodgy, messy, ugly, bad-quality, or complicated. “¡Se formó tremendo arroz con chungo!” is nonsense-fun roughly “A tremendous rice-with-chungo formed!” / a huge messy situation just got made. The bright yellow cartoon of five identical mustached, spiky-haired, bespectacled faces with the text overlay is meme-perfect for the frequency-raising, sovereign, non-serious seed-planting vibe. Use it.
 
+<kbd><img src="images/seformotremendoarrozconchungo.png" width="400" /></kbd>  
+
+<br />
+
 <kbd><img src="images/Picture06135.png" width="400" /></kbd>  
 
 > Awakening to the Truth: Why Everything Suddenly Makes Sense Now - https://www.youtube.com/watch?v=6pMPsaUkTWc  

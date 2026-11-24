@@ -15,7 +15,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Mon 23 Nov 2026
-> Prev: [Sun 22 Nov 2026](20261122_SEFORMOTREMENDOARROZCONCHUNGO.md) Next: []()
+> Prev: [Sun 22 Nov 2026](20261122_SEFORMOTREMENDOARROZCONCHUNGO.md) Next: [Tue 24 Nov 2026](20261124_ITHIDHANCHUNGOASLUGHAABHIASTASMOTHA.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
