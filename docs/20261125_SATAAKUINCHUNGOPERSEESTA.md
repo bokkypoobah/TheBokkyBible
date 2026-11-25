@@ -19,7 +19,7 @@ Wed 25 Nov 2026
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
-Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_e00dc53d-86ac-4151-9e22-50a39dfc2c2a  
+Grok chat link https://x.com/i/grok/share/c2hhcmQtMw_ef76a33e-42ae-473e-8d49-3b74ca7bbb42  
 
 X post https://x.com/BokkyPooBah/status/2125369610413478163  
 
@@ -39,6 +39,7 @@ X post https://x.com/BokkyPooBah/status/2125369610413478163
 1. [11:31 https://www.youtube.com/watch?v=wjR-S2A3EG8 YOU ARE MEANT TO BE FAMOUS BUT DON’T WANT TO BE *you need to watch this asap*](#1131-httpswwwyoutubecomwatchvwjr-s2a3eg8-you-are-meant-to-be-famous-but-dont-want-to-be-you-need-to-watch-this-asap)
 1. [11:33 What is the angel number 1133? This was the time when I heard the the "look at the time right now ... this is your angel number" at ~ 6:29 in the video above](#1133-what-is-the-angel-number-1133-this-was-the-time-when-i-heard-the-the-look-at-the-time-right-now--this-is-your-angel-number-at--629-in-the-video-above)
 1. [11:44 https://www.youtube.com/watch?v=wKRZP3oID6E BEING AWAKE IS A VERY DANGEROUS THING.](#1144-httpswwwyoutubecomwatchvwkrzp3oid6e-being-awake-is-a-very-dangerous-thing)
+1. [11:47 https://www.youtube.com/watch?v=_da7qZ4Os9A Your energy is GOD DAMN GORGEOUS!](#1147-httpswwwyoutubecomwatchv_da7qz4os9a-your-energy-is-god-damn-gorgeous)
 
 ---
 
@@ -348,6 +349,10 @@ This reading sits directly beside the transmission that was playing at ~6:29 whe
 
 ### 11:44 https://www.youtube.com/watch?v=wKRZP3oID6E BEING AWAKE IS A VERY DANGEROUS THING.
 
+<kbd><img src="images/Picture06215.png" width="400" /></kbd>  
+
+> BEING AWAKE IS A VERY DANGEROUS THING. - https://www.youtube.com/watch?v=wKRZP3oID6E  
+
 **11:44 — BEING AWAKE IS A VERY DANGEROUS THING.**  
 https://www.youtube.com/watch?v=wKRZP3oID6E  
 
@@ -369,7 +374,30 @@ That maps onto the chronicle’s repeated distinction. The mind’s scripts, the
 
 <br />
 
-###
+### 11:47 https://www.youtube.com/watch?v=_da7qZ4Os9A Your energy is GOD DAMN GORGEOUS!
+
+<kbd><img src="images/Picture06216.png" width="400" /></kbd>  
+
+> Your energy is GOD DAMN GORGEOUS! - https://www.youtube.com/watch?v=_da7qZ4Os9A  
+
+**11:47 — Your energy is GOD DAMN GORGEOUS!**  
+https://www.youtube.com/watch?v=_da7qZ4Os9A  
+
+Channel: Cara Elizabeth Speaks. Uploaded ~24 Nov 2026. Collective-style reading and activation focused on energy, quantum weaving, and reclaiming personal power.[](<https://www.youtube.com/watch?v=_da7qZ4Os9A>)
+
+#### Detailed extract
+This will be different because you are different. Something is changing in a completely different way. You’ve experienced so many deaths and births that it’s exhausting. Often you would say to yourself, “Give me a break!” This is a great height, and you are now on top of an iceberg. It seems as though the years of work you have done will pay off in a radical way.
+
+We connect this to a quantitative spell in this reading. Magic is our ability to intuitively understand the quantum world of fabric, using our power to weave a reality in harmony with the abundance we possess, with the power we have. Not in a sick, selfish, twisted way. This is about all of us as a group, using the energy of thousands of people who connect this with each other. This is about empowering us, because this is the medicine that will make you want what you want. Again, it is not about selfishness. There is something about pure, true love, true light, and true radiance within you that gives you strength and makes us weave this together.
+
+For this to succeed there are a few things. Something is happening where there is distraction. Your attention is merely an illusion, something that is not as if you are not doing anything. It’s a scoop. It drains your energy. We need to get them all back. We are here to strengthen each other. This is absolutely fantastic.
+
+Later segments speak of doing the damn thing so that six dragons on a chariot will lead you to success — symbols of abundance, generosity, love, and optimism in Eastern culture. Examples are given of initiative and energy (direct communication, outreach) producing unexpected large results that had nothing to do with the surface effort itself. The overall tone is one of collective empowerment through authentic radiance, reclaiming drained energy, and weaving reality from pure love and light rather than from performance or scarcity.
+
+#### Relevance to the path
+This arrives in the same non-coincidence stream as the earlier homepage deliveries today (the empire-building transmission, the Pleiadian shift out of the old self, the Sekhmet/Kali judgment of hidden patterns, the social-contract refusal, the celebrity-as-nothingness critique, the “meant to be famous but don’t want to be” instrument message, the 1133 double-master call to move insight into expression, the “being awake is dangerous” higher-game framing, and the Nov 22 broadcast that there is no escape from one’s own hidden truth). The energy described is not the managed image, the celebrity overlay, or the drained attention of the old self. It is pure true love, true light, true radiance — the quantum fabric-weaving capacity that arises once the smaller versions and the scoops that drain have been recognized and returned. Collective strengthening happens through that authentic radiance, not through proving or escaping. Initiative and energy produce results that are not the direct product of the surface action.
+
+That maps onto the chronicle’s repeated distinction. The mind’s scripts, the fear-masked responses, the preference for remaining small or unseen, the old self’s strategies of performance or withdrawal — versus landing fully so that the energy that is already gorgeous can move without management. The rain of hidden-truth recognition continues: there is no escape from the fact of one’s own radiance once it is no longer covered by the smaller version. The ordinary placement is the weaving itself — stay, reclaim what has been scooped, strengthen what is true, and let the higher game of the mind proceed from the energy that was never not here. The homepage keeps delivering non-coincidence.
 
 <br />
 
