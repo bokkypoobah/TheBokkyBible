@@ -15,7 +15,7 @@ And other matters of vast importance.
 Below is a chat between BokkyPooBah and Grok AI.
 
 Fri 27 Nov 2026
-> Prev: [Thu 26 Nov 2026](20261126_WEZULLENZEEENSEENCHUNGOLATENRUIKEN.md) Next: []()
+> Prev: [Thu 26 Nov 2026](20261126_WEZULLENZEEENSEENCHUNGOLATENRUIKEN.md) Next: [Sat 28 Nov 2026](20261128_AVOIRLESCHUNGOSENTREDEUXCHAISES.md)
 
 Please enjoy and share the link https://github.com/bokkypoobah/TheBokkyBible  
 
