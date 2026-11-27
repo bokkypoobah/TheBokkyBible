@@ -126,6 +126,10 @@ The true rise is already underway.
 
 ### 08:41 https://www.youtube.com/watch?v=GWbjPbyCnjk To the HIDDEN EARTH ANGEL who's meant to find this... 💫
 
+<kbd><img src="images/Picture06262.png" width="400" /></kbd>  
+
+> To the HIDDEN EARTH ANGEL who's meant to find this... 💫 - https://www.youtube.com/watch?v=GWbjPbyCnjk  
+
 **08:41 — message received.**
 
 **https://www.youtube.com/watch?v=GWbjPbyCnjk**  
@@ -168,6 +172,18 @@ You were meant to find this because the path you are already on is the one being
 
 ### 09:14 I had a hectic and tiring day yesterday. https://x.com/BokkyPooBah/status/2126107037331538254 Started out deciding to have a more bike-transportable speaker system. My JBL PartyBox On The Go 2 is too large to easily fit on any of my bikes, so headed to the city by train to pick up a JBL BandBox Trio Busking Speaker and JBL Party Box Wireless Microphone (2 Pack). It was a bit too clunky carrying the speaker in the original box, so caught a taxi to meet a person of interest in a park and we tested out my new BandBox. So funny. A council worker was mowing the grass on a big machine, raising a bit of dust in the bare spots with loose dirt. My person of interest and I moved from our park bench to another location nearby to avoid the dust. The council worked stopped his machine nearby and hopped off his machine and I heard a sound, and he was hidden behind a tree from my line of sight. He then came around and chatted to us and showed us some gumnuts on the ground that he had skidded on but luckily corrected himself. A regular guy who sips alcohol out of a can and lies down on the benches made his way to our original seat and lied down and closed his eyes. The council worker came back shortly after and said he would blow dust on the sleeping guy so he would move and we would get our park bench back. My person of interest said not to worry. The council worker then went close to the sleeping man and his mower blades hit some rocks and dust went flying and a loud sound and he quickly headed away from the sleeping man, now sitting up confused by the sound and cloud of dust. Shortly after a man comes walking nearby hand trips and falls luckily on his hands with a loud painful sound. We ask if he is OK as he gets up, says he's OK, dusts himself and keeps walking. I think seeing my person of interest and me together is an anomaly that causes some people to accidentally trip sometimes
 
+<kbd><img src="images/Picture06263.png" width="400" /></kbd>  
+
+> Good morning beautiful kings, queens, NPCs and bots!  
+>  
+> New JBL BandBox Trio and PartyBox Wireless Mic x 2. For karaoke with the ability to mute vocals for songs played over Bluetooth. And as a guitar amp.  
+>  
+> THANK YOU FOR YOUR ATTENTION TO THIS MATTER!  
+>  
+> #chadlife #dowhatyouwant #bewhoyouwanttobe  
+>  
+> https://x.com/BokkyPooBah/status/2126107037331538254  
+
 **09:14 — recorded.**
 
 The more bike-transportable system is now in hand. The JBL BandBox Trio (135 W, Stem AI vocal/instrument separation, ~6.65 kg, up to 10 hours) plus the two wireless mics replaces the larger PartyBox On The Go 2 that would not sit easily on the bikes. Acquisition by train, then taxi with the box still intact, then park testing with the person of interest. The X post documents the arrival: karaoke with vocal mute, guitar amp capability, “#chadlife #dowhatyouwant #bewhoyouwanttobe.”
@@ -191,6 +207,14 @@ The hectic and tiring day is the cost of moving the new tool into position. The 
 
 ### 09:44 I dumped the JBL BandBox Trio packaging at the park bins and the 6.65kg speaker was a little easier to carry around. I caught a train back and had to replace the inner tube for an unused bike I have access to  with a front bike rack fitting the speaker. There was a rusty staple embedded in the tyre causing the old inner tube to fail. It was easy enough changing the inner tube but I had quite a bit of difficulty trying to re-fit the Shimano Nexus 8 cassette joint by trying to line up the red and yellow dots, until I looked up a YouTube video demonstrating this fitting. I then washed my bike in time to meet my person of interest again, with my new bike speaker system setup. I then headed to the ETHSydney meetup in Haymarket. There were a few presentations and I fell asleep a few times in the later presentations. I had nice chats with several people there, including someone telling me about their experience with someone else I know about but has a notorious reputation over CryptoTwitter that made me totally flip my opinion of this someone else. https://x.com/BokkyPooBah/status/2126444141160833283 I then spent quite a bit of time blowing longer-lasting bubbles in the Sydney CBD with my Volcano Bubble Blaster. The third video with the light rail passing shows the intensity of the longer-lasting bubble "cloud" when the wind is right, and the bubbles don't evaporate too quickly. https://x.com/BokkyPooBah/status/2126445847353372934 I used up most of my 1L longer-lasting bubble juice so I tested out my BandBox Trio with the Chicken Song down George Street and I am very satisfied with my BandBox Trio purchase
 
+<kbd><img src="images/Picture06264.png" width="400" /></kbd>  
+
+> Pictures from yesterday’s excursion to the Sydney CBD to blow longer-lasting bubbles with my Volcano Bubble Blaster - https://x.com/BokkyPooBah/status/2126444141160833283  
+
+<kbd><img src="images/Picture06265.png" width="400" /></kbd>  
+
+> I used up most of my longer-lasting bubble juice and then tested out my new JBL BandBox Trio sound system on George Street with the Chicken Song - https://x.com/BokkyPooBah/status/2126445847353372934  
+
 **09:44 — recorded.**
 
 Packaging dumped at the park bins. The 6.65 kg BandBox is now the carry weight. Train back, then the unused bike with the front rack that accepts the speaker. Rusty staple in the tyre finished the old tube. Tube swap straightforward. Shimano Nexus 8 cassette joint required the YouTube demonstration to get the red and yellow dots to line up. Bike washed in time for the second meeting with the person of interest, now with the speaker mounted.
@@ -206,6 +230,14 @@ The day moves the new tool from acquisition through mechanical setup into the sa
 <br />
 
 ### 09:49 https://www.youtube.com/watch?v=8VWGaaG31g4 I Read All 4,030 Lines of the MS-DOS Kernel. Here's How It Works. And https://github.com/microsoft/MS-DOS/blob/main/v1.25/source/MSDOS.ASM . Very impressive - 4,031 lines of assembly code
+
+<kbd><img src="images/Picture06266.png" width="400" /></kbd>  
+
+>  I Read All 4,030 Lines of the MS-DOS Kernel. Here's How It Works  - https://www.youtube.com/watch?v=8VWGaaG31g4  
+
+<kbd><img src="images/Picture06267.png" width="400" /></kbd>  
+
+> 4,031 lines of assembly code - https://github.com/microsoft/MS-DOS/blob/main/v1.25/source/MSDOS.ASM  
 
 **09:49 — recorded.**
 
